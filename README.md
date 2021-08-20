@@ -1,4 +1,4 @@
-<h1 align="center">Hi there, I'm Rand <img src="https://raw.githubusercontent.com/ptprashanttripathi/ptprashanttripathi/master/hi.gif" width="30px"></h1>
+<h1 align="center">Hi there, I'm Gusti Randa <img src="https://raw.githubusercontent.com/ptprashanttripathi/ptprashanttripathi/master/hi.gif" width="30px"></h1>
 
 
 
