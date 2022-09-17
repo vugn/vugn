@@ -3,7 +3,7 @@
 
 
 **Personal Stuffs:**
-- 🔭 I’m currently working on **Portfolio Project**
+- 🔭 I’m currently working on **Flutter Project**
 - 🌱 I’m currently learning **Flutter development**
 - 💕 I'm currently fall in love with **Flutter**
 - ⚡ I like **Music** and **Chocolate Milk**
