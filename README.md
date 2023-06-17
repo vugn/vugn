@@ -29,8 +29,8 @@
 ## <h3 align="left">&#x1f4c8; GitHub Stats</h3>
 
 <a href="https://github.com/vugn">
-  <img align="center" src="https://github-readme-stats.vercel.app/api/top-langs/?username=vugn&layout=compact&hide_border=true" />
+  <img align="center" src="https://github-readme-stats.vercel.app/api/top-langs/?username=vugn&layout=compact&hide_border=true&theme=dark" />
 </a>
 <a href="https://github.com/vugn">
-  <img align="center" src="https://github-readme-stats.vercel.app/api?username=vugn&count_private=true&show_icons=true&hide_border=true&custom_title=My%20Github%20Stats&include_all_commits=true" alt="vugn's GitHub Stats"/>
+  <img align="center" src="https://github-readme-stats.vercel.app/api?username=vugn&count_private=true&show_icons=true&hide_border=true&custom_title=My%20Github%20Stats&include_all_commits=true&theme=dark" alt="vugn's GitHub Stats"/>
 </a>
