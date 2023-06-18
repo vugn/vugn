@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Thunder_</sub><br>
-**Surah Ar-Ra'd** (13: 29)
+<sub>_The Rocky Tract_</sub><br>
+**Surah Al-Hijr** (15: 49)
 
-> Those who believe and do good, for them will be bliss and an honourable destination.”
+> Inform My servants ˹O Prophet˺ that I am truly the All-Forgiving, Most Merciful,
 
-— Dhu al-Qi’dah 28, 1444H
+— Dhu al-Qi’dah 29, 1444H
 <!-- AYAHADAY:END -->
 
 <br>
