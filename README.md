@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Rocky Tract_</sub><br>
-**Surah Al-Hijr** (15: 49)
+<sub>_The Thunder_</sub><br>
+**Surah Ar-Ra'd** (13: 41)
 
-> Inform My servants ˹O Prophet˺ that I am truly the All-Forgiving, Most Merciful,
+> Do they not see that We gradually reduce their land from its borders? Allah decides—none can reverse His decision. And He is swift in reckoning.
 
-— Dhu al-Qi’dah 29, 1444H
+— Dhu al-Hijjah 1, 1444H
 <!-- AYAHADAY:END -->
 
 <br>
