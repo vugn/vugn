@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 36)
+<sub>_The Night Journey_</sub><br>
+**Surah Al-Isra** (17: 9)
 
-> nor do I think the Hour will ˹ever˺ come. And if in fact I am returned to my Lord, I will definitely get a far better outcome than ˹all˺ this.”
+> Surely this Quran guides to what is most upright, and gives good news to the believers—who do good—that they will have a mighty reward.
 
-— Dhu al-Hijjah 7, 1444H
+— Dhu al-Hijjah 8, 1444H
 <!-- AYAHADAY:END -->
 
 <br>
