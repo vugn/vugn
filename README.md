@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Heights_</sub><br>
-**Surah Al-A'raf** (7: 35)
+<sub>_The Prophets_</sub><br>
+**Surah Al-Anbya** (21: 50)
 
-> O children of Adam! When messengers from among yourselves come to you reciting My revelations—whoever shuns evil and mends their ways, there will be no fear for them, nor will they grieve.
+> And this ˹Quran˺ is a blessed reminder which We have revealed. Will you ˹pagans˺ then deny it?
 
-— Dhu al-Hijjah 15, 1444H
+— Dhu al-Hijjah 16, 1444H
 <!-- AYAHADAY:END -->
 
 <br>
