@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 25)
+<sub>_The Criterian_</sub><br>
+**Surah Al-Furqan** (25: 24)
 
-> ˹always˺ yielding its fruit in every season by the Will of its Lord. This is how Allah sets forth parables for the people, so perhaps they will be mindful.
+> ˹But˺ on that Day the residents of Paradise will have the best settlement and the finest place to rest.
 
-— Dhu al-Hijjah 18, 1444H
+— Dhu al-Hijjah 19, 1444H
 <!-- AYAHADAY:END -->
 
 <br>
