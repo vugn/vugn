@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Mary_</sub><br>
-**Surah Maryam** (19: 27)
+<sub>_Sheba_</sub><br>
+**Surah Saba** (34: 48)
 
-> Then she returned to her people, carrying him. They said ˹in shock˺, “O Mary! You have certainly done a horrible thing!
+> Say, “Surely my Lord hurls the truth ˹against falsehood˺. ˹He is˺ the Knower of all unseen.”
 
-— Dhu al-Hijjah 24, 1444H
+— Dhu al-Hijjah 25, 1444H
 <!-- AYAHADAY:END -->
 
 <br>
