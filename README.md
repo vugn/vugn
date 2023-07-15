@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Jonah_</sub><br>
-**Surah Yunus** (10: 36)
+<sub>_The Prophets_</sub><br>
+**Surah Al-Anbya** (21: 84)
 
-> Most of them follow nothing but ˹inherited˺ assumptions. ˹And˺ surely assumptions can in no way replace the truth. Allah is indeed All-Knowing of what they do.
+> So We answered his prayer and removed his adversity, and gave him back his family, twice as many, as a mercy from Us and a lesson for the ˹devoted˺ worshippers.
 
-— Dhu al-Hijjah 26, 1444H
+— Dhu al-Hijjah 27, 1444H
 <!-- AYAHADAY:END -->
 
 <br>
