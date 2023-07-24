@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Heights_</sub><br>
-**Surah Al-A'raf** (7: 88)
+<sub>_The Rocky Tract_</sub><br>
+**Surah Al-Hijr** (15: 69)
 
-> The arrogant chiefs of his people threatened, “O Shu’aib! We will certainly expel you and your fellow believers from our land, unless you return to our faith.” He replied, “Even if we hate it?
+> Fear Allah and do not humiliate me.”
 
-— Muharram 5, 1445H
+— Muharram 6, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
