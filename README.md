@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Rocky Tract_</sub><br>
-**Surah Al-Hijr** (15: 69)
+<sub>_The Combined Forces_</sub><br>
+**Surah Al-Ahzab** (33: 59)
 
-> Fear Allah and do not humiliate me.”
+> O Prophet! Ask your wives, daughters, and believing women to draw their cloaks over their bodies. In this way it is more likely that they will be recognized ˹as virtuous˺ and not be harassed. And Allah is All-Forgiving, Most Merciful. 
 
-— Muharram 6, 1445H
+— Muharram 7, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
