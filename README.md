@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 66)
+<sub>_The Night Journey_</sub><br>
+**Surah Al-Isra** (17: 63)
 
-> Moses said to him, “May I follow you, provided that you teach me some of the right guidance you have been taught?”
+> Allah responded, “Be gone! Whoever of them follows you, Hell will surely be the reward for all of you—an ample reward.
 
-— Muharram 12, 1445H
+— Muharram 13, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
