@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Night Journey_</sub><br>
-**Surah Al-Isra** (17: 63)
+<sub>_Noah_</sub><br>
+**Surah Nuh** (71: 20)
 
-> Allah responded, “Be gone! Whoever of them follows you, Hell will surely be the reward for all of you—an ample reward.
+> to walk along its spacious pathways.’”
 
-— Muharram 13, 1445H
+— Muharram 14, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
