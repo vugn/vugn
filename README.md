@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Noah_</sub><br>
-**Surah Nuh** (71: 20)
+<sub>_The Combined Forces_</sub><br>
+**Surah Al-Ahzab** (33: 47)
 
-> to walk along its spacious pathways.’”
+> Give good news to the believers that they will have a great bounty from Allah.
 
-— Muharram 14, 1445H
+— Muharram 15, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
