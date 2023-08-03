@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Combined Forces_</sub><br>
-**Surah Al-Ahzab** (33: 47)
+<sub>_The Opener_</sub><br>
+**Surah Al-Fatihah** (1: 1)
 
-> Give good news to the believers that they will have a great bounty from Allah.
+> In the Name of Allah—the Most Compassionate, Most Merciful.
 
-— Muharram 15, 1445H
+— Muharram 16, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
