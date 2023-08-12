@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 29)
+<sub>_The Defrauding_</sub><br>
+**Surah Al-Mutaffifin** (83: 17)
 
-> In Hell they will burn. What an evil place for settlement.
+> and then be told, “This is what you used to deny.”
 
-— Muharram 24, 1445H
+— Muharram 25, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
