@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Believers_</sub><br>
-**Surah Al-Mu'minun** (23: 60)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 59)
 
-> and who do whatever ˹good˺ they do with their hearts fearful, ˹knowing˺ that they will return to their Lord—
+> Indeed, the example of Jesus in the sight of Allah is like that of Adam. He created him from dust, then said to him, “Be!” And he was!
 
-— Muharram 26, 1445H
+— Muharram 27, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
