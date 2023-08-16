@@ -14,11 +14,11 @@
 
 <!-- AYAHADAY:START -->
 <sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 161)
+**Surah Al-Baqarah** (2: 145)
 
-> Surely those who disbelieve and die as disbelievers are condemned by Allah, the angels, and all of humanity.
+> Even if you were to bring every proof to the People of the Book, they would not accept your direction ˹of prayer˺, nor would you accept theirs; nor would any of them accept the direction ˹of prayer˺ of another. And if you were to follow their desires after ˹all˺ the knowledge that has come to you, then you would certainly be one of the wrongdoers.
 
-— Muharram 28, 1445H
+— Muharram 29, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
