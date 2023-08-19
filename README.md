@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 76)
+<sub>_The Ant_</sub><br>
+**Surah An-Naml** (27: 84)
 
-> When the night grew dark upon him, he saw a star and said, “This is my Lord!” But when it set, he said, “I do not love things that set.”
+> When they ˹finally˺ come before their Lord, He will ask ˹them˺, “Did you deny My revelations without ˹even˺ comprehending them? Or what ˹exactly˺ did you do?”
 
-— Safar 2, 1445H
+— Safar 3, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
