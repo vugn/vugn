@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Letter "Saad"_</sub><br>
-**Surah Sad** (38: 80)
+<sub>_The Defrauding_</sub><br>
+**Surah Al-Mutaffifin** (83: 32)
 
-> Allah said, “You will be delayed
+> And when they saw the faithful, they would say, “These ˹people˺ are truly astray,”
 
-— Safar 6, 1445H
+— Safar 7, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
