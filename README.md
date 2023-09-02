@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Those who set the Ranks_</sub><br>
-**Surah As-Saffat** (37: 6)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 178)
 
-> Indeed, We have adorned the lowest heaven with the stars for decoration
+> I am truly a trustworthy messenger to you.
 
-— Safar 16, 1445H
+— Safar 17, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
