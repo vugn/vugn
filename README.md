@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Hud_</sub><br>
-**Surah Hud** (11: 50)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 158)
 
-> And to the people of ’Âd We sent their brother Hûd. He said, “O my people! Worship Allah. You have no god other than Him. You do nothing but fabricate lies ˹against Allah˺.
+> Whether you die or are martyred—all of you will be gathered before Allah.
 
-— Safar 21, 1445H
+— Safar 22, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
