@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Troops_</sub><br>
-**Surah Az-Zumar** (39: 29)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 81)
 
-> Allah sets forth the parable of a slave owned by several quarrelsome masters, and a slave owned by only one master. Are they equal in condition? Praise be to Allah! In fact, most of them do not know.
+> You lust after men instead of women! You are certainly transgressors.”
 
-— Safar 24, 1445H
+— Safar 25, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
