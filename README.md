@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Hud_</sub><br>
-**Surah Hud** (11: 76)
+<sub>_The Prophets_</sub><br>
+**Surah Al-Anbya** (21: 28)
 
-> ˹The angels said,˺ “O Abraham! Plead no more! Your Lord’s decree has already come, and they will certainly be afflicted with a punishment that cannot be averted!”
+> He ˹fully˺ knows what is ahead of them and what is behind them. They do not intercede except for whom He approves, and they tremble in awe of Him.
 
-— Safar 28, 1445H
+— Safar 29, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
