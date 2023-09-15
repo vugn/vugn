@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Prophets_</sub><br>
-**Surah Al-Anbya** (21: 28)
+<sub>_The Ascending Stairways_</sub><br>
+**Surah Al-Ma'arij** (70: 35)
 
-> He ˹fully˺ knows what is ahead of them and what is behind them. They do not intercede except for whom He approves, and they tremble in awe of Him.
+> These will be in Gardens, held in honour.
 
-— Safar 29, 1445H
+— Safar 30, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
