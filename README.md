@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 159)
+<sub>_Ta-Ha_</sub><br>
+**Surah Taha** (20: 11)
 
-> Those who hide the clear proofs and guidance that We have revealed—after We made it clear for humanity in the Book—will be condemned by Allah and ˹all˺ those who condemn.
+> But when he approached it, he was called, “O Moses!
 
-— Rabi’ al-Awwal 1, 1445H
+— Rabi’ al-Awwal 2, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
