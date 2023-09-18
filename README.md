@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ta-Ha_</sub><br>
-**Surah Taha** (20: 11)
+<sub>_The Reality_</sub><br>
+**Surah Al-Haqqah** (69: 16)
 
-> But when he approached it, he was called, “O Moses!
+> The sky will then be so torn that it will be frail,
 
-— Rabi’ al-Awwal 2, 1445H
+— Rabi’ al-Awwal 3, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
