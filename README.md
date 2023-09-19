@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Reality_</sub><br>
-**Surah Al-Haqqah** (69: 16)
+<sub>_The Tidings_</sub><br>
+**Surah An-Naba** (78: 25)
 
-> The sky will then be so torn that it will be frail,
+> except boiling water and ˹oozing˺ pus—
 
-— Rabi’ al-Awwal 3, 1445H
+— Rabi’ al-Awwal 4, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
