@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Tidings_</sub><br>
-**Surah An-Naba** (78: 25)
+<sub>_The Wind-Curved Sandhills_</sub><br>
+**Surah Al-Ahqaf** (46: 10)
 
-> except boiling water and ˹oozing˺ pus—
+> Ask ˹them, O  Prophet˺, “Consider if this ˹Quran˺ is ˹truly˺ from Allah and you deny it, and a witness from the Children of Israel attests to it and then believes, whereas you act arrogantly. Surely Allah does not guide the wrongdoing people.”
 
-— Rabi’ al-Awwal 4, 1445H
+— Rabi’ al-Awwal 5, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
