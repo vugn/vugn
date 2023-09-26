@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Pilgrimage_</sub><br>
-**Surah Al-Haj** (22: 24)
+<sub>_Jonah_</sub><br>
+**Surah Yunus** (10: 92)
 
-> for they have been guided to the best of speech, and they have been guided to the Commendable Path. 
+> Today We will preserve your corpse so that you may become an example for those who come after you. And surely most people are heedless of Our examples!”
 
-— Rabi’ al-Awwal 10, 1445H
+— Rabi’ al-Awwal 11, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
