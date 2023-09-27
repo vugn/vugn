@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Jonah_</sub><br>
-**Surah Yunus** (10: 92)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 140)
 
-> Today We will preserve your corpse so that you may become an example for those who come after you. And surely most people are heedless of Our examples!”
+> And your Lord is certainly the Almighty, Most Merciful.
 
-— Rabi’ al-Awwal 11, 1445H
+— Rabi’ al-Awwal 12, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
