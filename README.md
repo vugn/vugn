@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 140)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 115)
 
-> And your Lord is certainly the Almighty, Most Merciful.
+> The Word of your Lord has been perfected in truth and justice. None can change His Words. And He is the All-Hearing, All- Knowing.
 
-— Rabi’ al-Awwal 12, 1445H
+— Rabi’ al-Awwal 13, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
