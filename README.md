@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Joseph_</sub><br>
-**Surah Yusuf** (12: 28)
+<sub>_The Letter "Qaf"_</sub><br>
+**Surah Qaf** (50: 18)
 
-> So when her husband saw that Joseph’s shirt was torn from the back, he said ˹to her˺, “This must be ˹an example˺ of the cunning of you ˹women˺! Indeed, your cunning is so shrewd!
+> not a word does a person utter without having a ˹vigilant˺ observer ready ˹to write it down˺. 
 
-— Rabi’ al-Awwal 14, 1445H
+— Rabi’ al-Awwal 15, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
