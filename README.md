@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Letter "Qaf"_</sub><br>
-**Surah Qaf** (50: 18)
+<sub>_Jonah_</sub><br>
+**Surah Yunus** (10: 58)
 
-> not a word does a person utter without having a ˹vigilant˺ observer ready ˹to write it down˺. 
+> Say, ˹O Prophet,˺ “In Allah’s grace and mercy let them rejoice. That is far better than whatever ˹wealth˺ they amass.”
 
-— Rabi’ al-Awwal 15, 1445H
+— Rabi’ al-Awwal 16, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
