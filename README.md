@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Jonah_</sub><br>
-**Surah Yunus** (10: 58)
+<sub>_The Pen_</sub><br>
+**Surah Al-Qalam** (68: 28)
 
-> Say, ˹O Prophet,˺ “In Allah’s grace and mercy let them rejoice. That is far better than whatever ˹wealth˺ they amass.”
+> The most sensible of them said, “Did I not urge you to say, ‘Allah willing.’?”
 
-— Rabi’ al-Awwal 16, 1445H
+— Rabi’ al-Awwal 17, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
