@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Light_</sub><br>
-**Surah An-Nur** (24: 42)
+<sub>_The Spider_</sub><br>
+**Surah Al-'Ankabut** (29: 37)
 
-> To Allah ˹alone˺ belongs the kingdom of the heavens and the earth. And to Allah is the final return.
+> But they rejected him, so an ˹overwhelming˺ earthquake struck them and they fell lifeless in their homes.
 
-— Rabi’ al-Awwal 19, 1445H
+— Rabi’ al-Awwal 20, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
