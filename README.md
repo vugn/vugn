@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Spider_</sub><br>
-**Surah Al-'Ankabut** (29: 37)
+<sub>_The Defrauding_</sub><br>
+**Surah Al-Mutaffifin** (83: 22)
 
-> But they rejected him, so an ˹overwhelming˺ earthquake struck them and they fell lifeless in their homes.
+> Surely the virtuous will be in bliss,
 
-— Rabi’ al-Awwal 20, 1445H
+— Rabi’ al-Awwal 21, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
