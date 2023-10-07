@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Defrauding_</sub><br>
-**Surah Al-Mutaffifin** (83: 22)
+<sub>_The Rocky Tract_</sub><br>
+**Surah Al-Hijr** (15: 63)
 
-> Surely the virtuous will be in bliss,
+> They responded, “We have come to you with that ˹torment˺ which they have doubted.
 
-— Rabi’ al-Awwal 21, 1445H
+— Rabi’ al-Awwal 22, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
