@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Rocky Tract_</sub><br>
-**Surah Al-Hijr** (15: 63)
+<sub>_The Prohibition_</sub><br>
+**Surah At-Tahrim** (66: 11)
 
-> They responded, “We have come to you with that ˹torment˺ which they have doubted.
+> And Allah sets forth an example for the believers: the wife of Pharaoh, who prayed, “My Lord! Build me a house in Paradise near You, deliver me from Pharaoh and his ˹evil˺ doing, and save me from the wrongdoing people.”
 
-— Rabi’ al-Awwal 22, 1445H
+— Rabi’ al-Awwal 23, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
