@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Dawn_</sub><br>
-**Surah Al-Fajr** (89: 11)
+<sub>_The Pilgrimage_</sub><br>
+**Surah Al-Haj** (22: 45)
 
-> They all transgressed throughout the land,
+> Many are the societies We have destroyed for persisting in wrongdoing, leaving them in total ruin. ˹Many are˺ also the abandoned wells and lofty palaces!
 
-— Rabi’ al-Awwal 24, 1445H
+— Rabi’ al-Awwal 25, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
