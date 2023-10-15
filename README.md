@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Moon_</sub><br>
-**Surah Al-Qamar** (54: 19)
+<sub>_Those who set the Ranks_</sub><br>
+**Surah As-Saffat** (37: 175)
 
-> Indeed, We sent against them a furious wind, on a day of unrelenting misery,
+> You will see ˹what will happen to˺ them, and they too will see!
 
-— Rabi’ al-Awwal 29, 1445H
+— Rabi’ al-Awwal 30, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
