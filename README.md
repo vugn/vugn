@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Thunder_</sub><br>
-**Surah Ar-Ra'd** (13: 31)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 90)
 
-> If there were a recitation that could cause mountains to move, or the earth to split, or the dead to speak, ˹it would have been this Quran˺. But all matters are by Allah’s Will. Have the believers not yet realized that had Allah willed, He could have guided all of humanity? And disasters will continue to afflict the disbelievers or strike close to their homes for their misdeeds, until Allah’s promise comes to pass. Surely Allah never fails in His promise.
+> The disbelieving chiefs of his people threatened, “If you follow Shu’aib, you will surely be losers!”
 
-— Rabi’ al-Thani 1, 1445H
+— Rabi’ al-Thani 2, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
