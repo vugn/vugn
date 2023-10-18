@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Heights_</sub><br>
-**Surah Al-A'raf** (7: 90)
+<sub>_The Inevitable_</sub><br>
+**Surah Al-Waqi'ah** (56: 21)
 
-> The disbelieving chiefs of his people threatened, “If you follow Shu’aib, you will surely be losers!”
+> and meat from any bird they desire.
 
-— Rabi’ al-Thani 2, 1445H
+— Rabi’ al-Thani 3, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
