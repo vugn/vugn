@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Inevitable_</sub><br>
-**Surah Al-Waqi'ah** (56: 21)
+<sub>_Ta-Ha_</sub><br>
+**Surah Taha** (20: 115)
 
-> and meat from any bird they desire.
+> And indeed, We once made a covenant with Adam, but he forgot, and ˹so˺ We did not find determination in him.
 
-— Rabi’ al-Thani 3, 1445H
+— Rabi’ al-Thani 4, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
