@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Smoke_</sub><br>
-**Surah Ad-Dukhan** (44: 36)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 191)
 
-> Bring ˹back˺ our forefathers, if what you say is true.”
+> Do they associate ˹with Allah˺ those ˹idols˺ which cannot create anything, but are in fact created;
 
-— Rabi’ al-Thani 6, 1445H
+— Rabi’ al-Thani 7, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
