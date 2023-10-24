@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Family of Imran_</sub><br>
-**Surah Ali 'Imran** (3: 167)
+<sub>_The Tidings_</sub><br>
+**Surah An-Naba** (78: 30)
 
-> and expose the hypocrites. When it was said to them, “Come fight in the cause of Allah or ˹at least˺ defend yourselves,” they replied, “If we had known there was fighting, we would have definitely gone with you.” They were closer to disbelief than to belief on that day—for saying with their mouths what was not in their hearts. Allah is All-Knowing of what they hide.
+> ˹So the deniers will be told,˺ “Taste ˹the punishment˺, for all you will get from Us is more torment.”
 
-— Rabi’ al-Thani 8, 1445H
+— Rabi’ al-Thani 9, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
