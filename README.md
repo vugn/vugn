@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Iron_</sub><br>
-**Surah Al-Hadid** (57: 22)
+<sub>_Those who set the Ranks_</sub><br>
+**Surah As-Saffat** (37: 162)
 
-> No calamity ˹or blessing˺ occurs on earth or in yourselves without being ˹written˺ in a Record before We bring it into being. This is certainly easy for Allah.
+> can never lure ˹anyone˺ away from Him
 
-— Rabi’ al-Thani 11, 1445H
+— Rabi’ al-Thani 12, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
