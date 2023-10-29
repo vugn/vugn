@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Exile_</sub><br>
-**Surah Al-Hashr** (59: 13)
+<sub>_The Overwhelming_</sub><br>
+**Surah Al-Ghashiyah** (88: 25)
 
-> Indeed, there is more fear in their hearts for you ˹believers˺ than for Allah. That is because they are a people who do not comprehend.
+> Surely to Us is their return,
 
-— Rabi’ al-Thani 13, 1445H
+— Rabi’ al-Thani 14, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
