@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Overwhelming_</sub><br>
-**Surah Al-Ghashiyah** (88: 25)
+<sub>_The Man_</sub><br>
+**Surah Al-Insan** (76: 4)
 
-> Surely to Us is their return,
+> Indeed, We have prepared for the disbelievers chains, shackles, and a blazing Fire.
 
-— Rabi’ al-Thani 14, 1445H
+— Rabi’ al-Thani 15, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
