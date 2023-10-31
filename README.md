@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Man_</sub><br>
-**Surah Al-Insan** (76: 4)
+<sub>_The Table Spread_</sub><br>
+**Surah Al-Ma'idah** (5: 37)
 
-> Indeed, We have prepared for the disbelievers chains, shackles, and a blazing Fire.
+> They will be desperate to get out of the Fire but they will never be able to. And they will suffer an everlasting punishment.
 
-— Rabi’ al-Thani 15, 1445H
+— Rabi’ al-Thani 16, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
