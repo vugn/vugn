@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ta-Ha_</sub><br>
-**Surah Taha** (20: 88)
+<sub>_Those who set the Ranks_</sub><br>
+**Surah As-Saffat** (37: 140)
 
-> Then he moulded for them an idol of a calf that made a lowing sound. They said, “This is your god and the god of Moses, but Moses forgot ˹where it was˺!”
+> ˹Remember˺ when he fled to the overloaded ship.
 
-— Rabi’ al-Thani 17, 1445H
+— Rabi’ al-Thani 18, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
