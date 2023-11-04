@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Table Spread_</sub><br>
-**Surah Al-Ma'idah** (5: 28)
+<sub>_The Stories_</sub><br>
+**Surah Al-Qasas** (28: 17)
 
-> If you raise your hand to kill me, I will not raise mine to kill you, because I fear Allah—the Lord of all worlds.
+> Moses pledged, “My Lord! For all Your favours upon me, I will never side with the wicked.”
 
-— Rabi’ al-Thani 19, 1445H
+— Rabi’ al-Thani 20, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
