@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Stories_</sub><br>
-**Surah Al-Qasas** (28: 17)
+<sub>_The Man_</sub><br>
+**Surah Al-Insan** (76: 7)
 
-> Moses pledged, “My Lord! For all Your favours upon me, I will never side with the wicked.”
+> They ˹are those who˺ fulfil ˹their˺ vows and fear a Day of sweeping horror,
 
-— Rabi’ al-Thani 20, 1445H
+— Rabi’ al-Thani 21, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
