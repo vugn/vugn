@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Man_</sub><br>
-**Surah Al-Insan** (76: 7)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 25)
 
-> They ˹are those who˺ fulfil ˹their˺ vows and fear a Day of sweeping horror,
+> But how ˹horrible˺ will it be when We gather them together on the Day about which there is no doubt—when every soul will be paid in full for what it has done, and none will be wronged!
 
-— Rabi’ al-Thani 21, 1445H
+— Rabi’ al-Thani 22, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
