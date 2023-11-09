@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Those who drag forth_</sub><br>
-**Surah An-Nazi'at** (79: 38)
+<sub>_Hud_</sub><br>
+**Surah Hud** (11: 68)
 
-> and preferred the ˹fleeting˺ life of this world,
+> as if they had never lived there. Surely Thamûd denied their Lord, so away with Thamûd!
 
-— Rabi’ al-Thani 24, 1445H
+— Rabi’ al-Thani 25, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
