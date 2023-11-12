@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Ascending Stairways_</sub><br>
-**Surah Al-Ma'arij** (70: 6)
+<sub>_The Romans_</sub><br>
+**Surah Ar-Rum** (30: 23)
 
-> They truly see this ˹Day˺ as impossible,
+> And one of His signs is your sleep by night and by day ˹for rest˺ as well as your seeking His bounty ˹in both˺. Surely in this are signs for people who listen.
 
-— Rabi’ al-Thani 27, 1445H
+— Rabi’ al-Thani 28, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
