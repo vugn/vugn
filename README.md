@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Romans_</sub><br>
-**Surah Ar-Rum** (30: 23)
+<sub>_The Letter "Saad"_</sub><br>
+**Surah Sad** (38: 49)
 
-> And one of His signs is your sleep by night and by day ˹for rest˺ as well as your seeking His bounty ˹in both˺. Surely in this are signs for people who listen.
+> This is ˹all˺ a reminder. And the righteous will certainly have an honourable destination:
 
-— Rabi’ al-Thani 28, 1445H
+— Rabi’ al-Thani 29, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
