@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Letter "Qaf"_</sub><br>
-**Surah Qaf** (50: 24)
+<sub>_Sheba_</sub><br>
+**Surah Saba** (34: 41)
 
-> ˹It will be said to both angels,˺ “Throw into Hell every stubborn disbeliever,
+> They will say, “Glory be to You! Our loyalty is to You, not them. In fact, they ˹only˺ followed the ˹temptations of evil˺ jinn, in whom most of them had faith.”
 
-— Jumada al-Ula 3, 1445H
+— Jumada al-Ula 4, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
