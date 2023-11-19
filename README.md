@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Sheba_</sub><br>
-**Surah Saba** (34: 41)
+<sub>_The Overwhelming_</sub><br>
+**Surah Al-Ghashiyah** (88: 23)
 
-> They will say, “Glory be to You! Our loyalty is to You, not them. In fact, they ˹only˺ followed the ˹temptations of evil˺ jinn, in whom most of them had faith.”
+> But whoever turns away, persisting in disbelief,
 
-— Jumada al-Ula 4, 1445H
+— Jumada al-Ula 5, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
