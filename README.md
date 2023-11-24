@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Earthquake_</sub><br>
-**Surah Az-Zalzalah** (99: 4)
+<sub>_Explained in Detail_</sub><br>
+**Surah Fussilat** (41: 53)
 
-> on that Day the earth will recount everything,
+> We will show them Our signs in the universe and within themselves until it becomes clear to them that this ˹Quran˺ is the truth. Is it not enough that your Lord is a Witness over all things?
 
-— Jumada al-Ula 9, 1445H
+— Jumada al-Ula 10, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
