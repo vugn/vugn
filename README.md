@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Explained in Detail_</sub><br>
-**Surah Fussilat** (41: 53)
+<sub>_The Night Journey_</sub><br>
+**Surah Al-Isra** (17: 51)
 
-> We will show them Our signs in the universe and within themselves until it becomes clear to them that this ˹Quran˺ is the truth. Is it not enough that your Lord is a Witness over all things?
+> or whatever you think is harder to bring to life!” Then they will ask ˹you˺, “Who will bring us back ˹to life˺?” Say, “The One Who created you the first time.” They will then shake their heads at you and ask, “When will that be?” Say, “Perhaps it is soon!”
 
-— Jumada al-Ula 10, 1445H
+— Jumada al-Ula 11, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
