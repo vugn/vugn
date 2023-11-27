@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ya Sin_</sub><br>
-**Surah Ya-Sin** (36: 78)
+<sub>_The Victory_</sub><br>
+**Surah Al-Fath** (48: 2)
 
-> And they argue with Us—forgetting they were created—saying, “Who will give life to decayed bones?”
+> so that Allah may forgive you for your past and future shortcomings, perfect His favour upon you, guide you along the Straight Path,
 
-— Jumada al-Ula 12, 1445H
+— Jumada al-Ula 13, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
