@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Luqman_</sub><br>
-**Surah Luqman** (31: 1)
+<sub>_Joseph_</sub><br>
+**Surah Yusuf** (12: 1)
 
-> Alif-Lãm-Mĩm.
+> Alif-Lãm-Ra. These are the verses of the clear Book.
 
-— Jumada al-Ula 15, 1445H
+— Jumada al-Ula 16, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
