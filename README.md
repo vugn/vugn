@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Joseph_</sub><br>
-**Surah Yusuf** (12: 1)
+<sub>_The Winnowing Winds_</sub><br>
+**Surah Adh-Dhariyat** (51: 53)
 
-> Alif-Lãm-Ra. These are the verses of the clear Book.
+> Have they passed this ˹cliché˺ down to one another? In fact, they have ˹all˺ been a transgressing people.
 
-— Jumada al-Ula 16, 1445H
+— Jumada al-Ula 17, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
