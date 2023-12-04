@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Jonah_</sub><br>
-**Surah Yunus** (10: 107)
+<sub>_The Bee_</sub><br>
+**Surah An-Nahl** (16: 106)
 
-> and ‘If Allah touches you with harm, none can undo it except Him. And if He intends good for you, none can withhold His bounty. He grants it to whoever He wills of His servants. And He is the All-Forgiving, Most Merciful.’”
+> Whoever disbelieves in Allah after their belief—not those who are forced while their hearts are firm in faith, but those who embrace disbelief wholeheartedly—they will be condemned by Allah and suffer a tremendous punishment.
 
-— Jumada al-Ula 19, 1445H
+— Jumada al-Ula 20, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
