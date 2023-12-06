@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Mary_</sub><br>
-**Surah Maryam** (19: 96)
+<sub>_The Resurrection_</sub><br>
+**Surah Al-Qiyamah** (75: 15)
 
-> As for those who believe and do good, the Most Compassionate will ˹certainly˺ bless them with ˹genuine˺ love.
+> despite the excuses they come up with.
 
-— Jumada al-Ula 21, 1445H
+— Jumada al-Ula 22, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
