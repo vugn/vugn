@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Repentance_</sub><br>
-**Surah At-Tawbah** (9: 53)
+<sub>_Joseph_</sub><br>
+**Surah Yusuf** (12: 24)
 
-> Say, ˹O Prophet,˺ “˹Whether you˺ donate willingly or unwillingly, it will never be accepted from you, for you have been a rebellious people.”
+> She advanced towards him, and he would have done likewise, had he not seen a sign from his Lord. This is how We kept evil and indecency away from him, for he was truly one of Our chosen servants.
 
-— Jumada al-Ula 23, 1445H
+— Jumada al-Ula 24, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
