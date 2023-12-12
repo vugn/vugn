@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Sun_</sub><br>
-**Surah Ash-Shams** (91: 3)
+<sub>_The Moon_</sub><br>
+**Surah Al-Qamar** (54: 31)
 
-> and the day as it unveils it,
+> Indeed, We sent against them ˹only˺ one ˹mighty˺ blast, leaving them like the twigs of fence-builders.
 
-— Jumada al-Ula 27, 1445H
+— Jumada al-Ula 28, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
