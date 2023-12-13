@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Moon_</sub><br>
-**Surah Al-Qamar** (54: 31)
+<sub>_Ta-Ha_</sub><br>
+**Surah Taha** (20: 128)
 
-> Indeed, We sent against them ˹only˺ one ˹mighty˺ blast, leaving them like the twigs of fence-builders.
+> Is it not yet clear to them how many peoples We destroyed before them, whose ruins they still pass by? Surely in this are signs for people of sound judgment.
 
-— Jumada al-Ula 28, 1445H
+— Jumada al-Ula 29, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
