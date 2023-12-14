@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ta-Ha_</sub><br>
-**Surah Taha** (20: 128)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 28)
 
-> Is it not yet clear to them how many peoples We destroyed before them, whose ruins they still pass by? Surely in this are signs for people of sound judgment.
+> Whenever they commit a shameful deed, they say, “We found our forefathers doing it and Allah has commanded us to do it.” Say, “No! Allah never commands what is shameful. How can you attribute to Allah what you do not know?”
 
-— Jumada al-Ula 29, 1445H
+— Jumada al-Akhirah 1, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
