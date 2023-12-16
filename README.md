@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 53)
+<sub>_The Repentance_</sub><br>
+**Surah At-Tawbah** (9: 37)
 
-> The wicked will see the Fire and realize that they are bound to fall into it, and will find no way to avoid it.
+> Reallocating the sanctity of ˹these˺ months is an increase in disbelief, by which the disbelievers are led ˹far˺ astray. They adjust the sanctity one year and uphold it in another, only to maintain the number of months sanctified by Allah, violating the very months Allah has made sacred. Their evil deeds have been made appealing to them. And Allah does not guide the disbelieving people.
 
-— Jumada al-Akhirah 2, 1445H
+— Jumada al-Akhirah 3, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
