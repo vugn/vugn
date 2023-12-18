@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Emissaries_</sub><br>
-**Surah Al-Mursalat** (77: 26)
+<sub>_The Beneficent_</sub><br>
+**Surah Ar-Rahman** (55: 3)
 
-> for the living and the dead,
+> created humanity,
 
-— Jumada al-Akhirah 4, 1445H
+— Jumada al-Akhirah 5, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
