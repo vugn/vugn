@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 37)
+<sub>_The Beneficent_</sub><br>
+**Surah Ar-Rahman** (55: 36)
 
-> They ask, “Why has no ˹other˺ sign been sent down to him from his Lord?” Say, ˹O Prophet,˺ “Allah certainly has the power to send down a sign”—though most of them do not know.
+> Then which of your Lord’s favours will you both deny?
 
-— Jumada al-Akhirah 9, 1445H
+— Jumada al-Akhirah 10, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
