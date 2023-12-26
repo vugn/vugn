@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 137)
+<sub>_The Mutual Disillusion_</sub><br>
+**Surah At-Taghabun** (64: 17)
 
-> So if they believe in what you believe, then they will indeed be ˹rightly˺ guided. But if they turn away, they are simply opposed ˹to the truth˺. But Allah will spare you their evil. For He is the All-Hearing, All-Knowing.
+> If you lend to Allah a good loan, He will multiply it for you and forgive you. For Allah is Most Appreciative, Most Forbearing.
 
-— Jumada al-Akhirah 12, 1445H
+— Jumada al-Akhirah 13, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
