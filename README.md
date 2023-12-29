@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Repentance_</sub><br>
-**Surah At-Tawbah** (9: 45)
+<sub>_Hud_</sub><br>
+**Surah Hud** (11: 91)
 
-> No one would ask for exemption except those who have no faith in Allah or the Last Day, and whose hearts are in doubt, so they are torn by their doubts.
+> They threatened, “O Shu’aib! We do not comprehend much of what you say, and surely we see you powerless among us. Were it not for your clan, we would have certainly stoned you, for you are nothing to us.”
 
-— Jumada al-Akhirah 15, 1445H
+— Jumada al-Akhirah 16, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
