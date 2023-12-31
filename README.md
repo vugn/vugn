@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 263)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 115)
 
-> Kind words and forgiveness are better than charity followed by injury. And Allah is Self-Sufficient, Most Forbearing.
+> They asked, “O Moses! Will you cast, or shall we be the first to cast?”
 
-— Jumada al-Akhirah 17, 1445H
+— Jumada al-Akhirah 18, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
