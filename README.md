@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Heights_</sub><br>
-**Surah Al-A'raf** (7: 115)
+<sub>_Hud_</sub><br>
+**Surah Hud** (11: 52)
 
-> They asked, “O Moses! Will you cast, or shall we be the first to cast?”
+> And O  my people! Seek your Lord’s forgiveness and turn to Him in repentance. He will shower you with rain in abundance, and add strength to your strength. So do not turn away, persisting in wickedness.”
 
-— Jumada al-Akhirah 18, 1445H
+— Jumada al-Akhirah 19, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
