@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Spider_</sub><br>
-**Surah Al-'Ankabut** (29: 44)
+<sub>_The Iron_</sub><br>
+**Surah Al-Hadid** (57: 2)
 
-> Allah created the heavens and the earth for a purpose. Surely in this is a sign for the people of faith.
+> To Him belongs the kingdom of the heavens and the earth. He gives life and causes death. And He is Most Capable of everything.
 
-— Jumada al-Akhirah 20, 1445H
+— Jumada al-Akhirah 21, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
