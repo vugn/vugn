@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Bee_</sub><br>
-**Surah An-Nahl** (16: 118)
+<sub>_The Women_</sub><br>
+**Surah An-Nisa** (4: 175)
 
-> To the Jews, We have forbidden what We related to you before. We did not wrong them, but it was they who wronged themselves.
+> As for those who believe in Allah and hold fast to Him, He will admit them into His mercy and grace and guide them to Himself through the Straight Path.
 
-— Jumada al-Akhirah 22, 1445H
+— Jumada al-Akhirah 23, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
