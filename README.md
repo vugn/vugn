@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Ascending Stairways_</sub><br>
-**Surah Al-Ma'arij** (70: 5)
+<sub>_The Palm Fiber_</sub><br>
+**Surah Al-Masad** (111: 4)
 
-> So endure ˹this denial, O  Prophet,˺ with beautiful patience.
+> and ˹so will˺ his wife, the carrier of ˹thorny˺ kindling,
 
-— Jumada al-Akhirah 27, 1445H
+— Jumada al-Akhirah 28, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
