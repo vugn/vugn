@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Palm Fiber_</sub><br>
-**Surah Al-Masad** (111: 4)
+<sub>_The Repentance_</sub><br>
+**Surah At-Tawbah** (9: 22)
 
-> and ˹so will˺ his wife, the carrier of ˹thorny˺ kindling,
+> to stay there for ever and ever. Surely with Allah is a great reward.
 
-— Jumada al-Akhirah 28, 1445H
+— Jumada al-Akhirah 29, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
