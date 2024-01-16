@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Heights_</sub><br>
-**Surah Al-A'raf** (7: 1)
+<sub>_The Enshrouded One_</sub><br>
+**Surah Al-Muzzammil** (73: 3)
 
-> Alif-Lãm-Mĩm-Ṣãd.
+> ˹pray˺ half the night, or a little less,
 
-— Rajab 3, 1445H
+— Rajab 4, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
