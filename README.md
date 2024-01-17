@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Enshrouded One_</sub><br>
-**Surah Al-Muzzammil** (73: 3)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 190)
 
-> ˹pray˺ half the night, or a little less,
+> Surely in this is a sign. Yet most of them would not believe.
 
-— Rajab 4, 1445H
+— Rajab 5, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
