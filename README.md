@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 190)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 102)
 
-> Surely in this is a sign. Yet most of them would not believe.
+> That is Allah—your Lord! There is no god ˹worthy of worship˺ except Him. ˹He is˺ the Creator of all things, so worship Him ˹alone˺. And He is the Maintainer of everything.
 
-— Rajab 5, 1445H
+— Rajab 6, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
