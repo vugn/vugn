@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 102)
+<sub>_The Cloaked One_</sub><br>
+**Surah Al-Muddaththir** (74: 17)
 
-> That is Allah—your Lord! There is no god ˹worthy of worship˺ except Him. ˹He is˺ the Creator of all things, so worship Him ˹alone˺. And He is the Maintainer of everything.
+> I will make his fate unbearable,
 
-— Rajab 6, 1445H
+— Rajab 7, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
