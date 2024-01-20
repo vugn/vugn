@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cloaked One_</sub><br>
-**Surah Al-Muddaththir** (74: 17)
+<sub>_Muhammad_</sub><br>
+**Surah Muhammad** (47: 8)
 
-> I will make his fate unbearable,
+> As for the disbelievers, may they be doomed and may He render their deeds void.
 
-— Rajab 7, 1445H
+— Rajab 8, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
