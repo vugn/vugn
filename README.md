@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Letter "Qaf"_</sub><br>
-**Surah Qaf** (50: 23)
+<sub>_Mary_</sub><br>
+**Surah Maryam** (19: 84)
 
-> And one’s accompanying-angel will say, “Here is the record ready with me.”
+> So do not be in haste against them, for indeed We are ˹closely˺ counting down their days.
 
-— Rajab 10, 1445H
+— Rajab 11, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
