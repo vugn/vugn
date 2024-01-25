@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Believers_</sub><br>
-**Surah Al-Mu'minun** (23: 4)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 115)
 
-> those who pay alms-tax;
+> I am only sent with a clear warning.”
 
-— Rajab 12, 1445H
+— Rajab 13, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
