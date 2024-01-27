@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Overwhelming_</sub><br>
-**Surah Al-Ghashiyah** (88: 19)
+<sub>_The Ornaments of Gold_</sub><br>
+**Surah Az-Zukhruf** (43: 26)
 
-> and the mountains—how they were firmly set up;
+> ˹Remember, O  Prophet˺ when Abraham declared to his father and his people, “I am totally free of whatever ˹gods˺ you worship,
 
-— Rajab 14, 1445H
+— Rajab 15, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
