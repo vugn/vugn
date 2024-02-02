@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Table Spread_</sub><br>
-**Surah Al-Ma'idah** (5: 55)
+<sub>_Hud_</sub><br>
+**Surah Hud** (11: 24)
 
-> Your only guardians are Allah, His Messenger, and fellow believers—who establish prayer and pay alms-tax with humility.
+> The example of these two parties is that of the blind and the deaf, compared to the seeing and the hearing. Can the two be equal? Will you not then be mindful?
 
-— Rajab 20, 1445H
+— Rajab 21, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
