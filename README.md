@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Hud_</sub><br>
-**Surah Hud** (11: 24)
+<sub>_Ta-Ha_</sub><br>
+**Surah Taha** (20: 43)
 
-> The example of these two parties is that of the blind and the deaf, compared to the seeing and the hearing. Can the two be equal? Will you not then be mindful?
+> Go, both of you, to Pharaoh, for he has truly transgressed ˹all bounds˺.
 
-— Rajab 21, 1445H
+— Rajab 22, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
