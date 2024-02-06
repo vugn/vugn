@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Letter "Saad"_</sub><br>
-**Surah Sad** (38: 45)
+<sub>_The Smoke_</sub><br>
+**Surah Ad-Dukhan** (44: 7)
 
-> And remember Our servants: Abraham, Isaac, and Jacob—the men of strength and insight.
+> the Lord of the heavens and the earth and everything in between, if only you had sure faith.
 
-— Rajab 24, 1445H
+— Rajab 25, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
