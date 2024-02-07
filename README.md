@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Smoke_</sub><br>
-**Surah Ad-Dukhan** (44: 7)
+<sub>_Joseph_</sub><br>
+**Surah Yusuf** (12: 88)
 
-> the Lord of the heavens and the earth and everything in between, if only you had sure faith.
+> When they entered Joseph’s presence, they pleaded, “O Chief Minister! We and our family have been touched with hardship, and we have brought only a few worthless coins, but ˹please˺ give us our supplies in full and be charitable to us. Indeed, Allah rewards the charitable.”
 
-— Rajab 25, 1445H
+— Rajab 26, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
