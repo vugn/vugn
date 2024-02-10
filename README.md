@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Sheba_</sub><br>
-**Surah Saba** (34: 42)
+<sub>_The Women_</sub><br>
+**Surah An-Nisa** (4: 61)
 
-> So Today neither of you can benefit or protect each other. And We will say to the wrongdoers, “Taste the torment of the Fire, which you used to deny.”
+> When it is said to them, “Come to Allah’s revelations and to the Messenger,” you see the hypocrites turn away from you stubbornly.
 
-— Rajab 28, 1445H
+— Rajab 29, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
