@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Most High_</sub><br>
-**Surah Al-A'la** (87: 4)
+<sub>_Joseph_</sub><br>
+**Surah Yusuf** (12: 95)
 
-> and Who brings forth ˹green˺ pasture,
+> They replied, “By Allah! You are definitely still in your old delusion.”
 
-— Sha’ban 1, 1445H
+— Sha’ban 2, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
