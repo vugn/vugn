@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Joseph_</sub><br>
-**Surah Yusuf** (12: 95)
+<sub>_The Combined Forces_</sub><br>
+**Surah Al-Ahzab** (33: 57)
 
-> They replied, “By Allah! You are definitely still in your old delusion.”
+> Surely those who offend Allah and His Messenger are condemned by Allah in this world and the Hereafter. And He has prepared for them a humiliating punishment.
 
-— Sha’ban 2, 1445H
+— Sha’ban 3, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
