@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Combined Forces_</sub><br>
-**Surah Al-Ahzab** (33: 57)
+<sub>_The Cow_</sub><br>
+**Surah Al-Baqarah** (2: 230)
 
-> Surely those who offend Allah and His Messenger are condemned by Allah in this world and the Hereafter. And He has prepared for them a humiliating punishment.
+> So if a husband divorces his wife ˹three times˺, then it is not lawful for him to remarry her until after she has married another man and then is divorced. Then it is permissible for them to reunite, as long as they feel they are able to maintain the limits of Allah. These are the limits set by Allah, which He makes clear for people of knowledge.
 
-— Sha’ban 3, 1445H
+— Sha’ban 4, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
