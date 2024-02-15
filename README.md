@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 230)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 142)
 
-> So if a husband divorces his wife ˹three times˺, then it is not lawful for him to remarry her until after she has married another man and then is divorced. Then it is permissible for them to reunite, as long as they feel they are able to maintain the limits of Allah. These are the limits set by Allah, which He makes clear for people of knowledge.
+> Do you think you will enter Paradise without Allah proving which of you ˹truly˺ struggled ˹for His cause˺ and patiently endured?
 
-— Sha’ban 4, 1445H
+— Sha’ban 5, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
