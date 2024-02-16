@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Family of Imran_</sub><br>
-**Surah Ali 'Imran** (3: 142)
+<sub>_The Emissaries_</sub><br>
+**Surah Al-Mursalat** (77: 25)
 
-> Do you think you will enter Paradise without Allah proving which of you ˹truly˺ struggled ˹for His cause˺ and patiently endured?
+> Have We not made the earth a lodging
 
-— Sha’ban 5, 1445H
+— Sha’ban 6, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
