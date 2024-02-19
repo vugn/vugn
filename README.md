@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Declining Day_</sub><br>
-**Surah Al-'Asr** (103: 3)
+<sub>_The Beneficent_</sub><br>
+**Surah Ar-Rahman** (55: 2)
 
-> except those who have faith, do good, and urge each other to the truth, and urge each other to perseverance.
+> taught the Quran,
 
-— Sha’ban 8, 1445H
+— Sha’ban 9, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
