@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 171)
+<sub>_Ya Sin_</sub><br>
+**Surah Ya-Sin** (36: 39)
 
-> except an old woman, who was one of the doomed.
+> As for the moon, We have ordained ˹precise˺ phases for it, until it ends up ˹looking˺ like an old, curved palm stalk.
 
-— Sha’ban 10, 1445H
+— Sha’ban 11, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
