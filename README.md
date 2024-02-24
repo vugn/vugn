@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Family of Imran_</sub><br>
-**Surah Ali 'Imran** (3: 57)
+<sub>_The Troops_</sub><br>
+**Surah Az-Zumar** (39: 3)
 
-> And as for those who believe and do good, they will be rewarded in full. And Allah does not like the wrongdoers.”
+> Indeed, sincere devotion is due ˹only˺ to Allah. As for those who take other lords besides Him, ˹saying,˺ “We worship them only so they may bring us closer to Allah,” surely Allah will judge between all regarding what they differed about. Allah certainly does not guide whoever persists in lying and disbelief.
 
-— Sha’ban 13, 1445H
+— Sha’ban 14, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
