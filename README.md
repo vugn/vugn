@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 8)
+<sub>_Those who set the Ranks_</sub><br>
+**Surah As-Saffat** (37: 136)
 
-> And We will certainly reduce whatever is on it to barren ground.
+> Then We ˹utterly˺ destroyed the rest.
 
-— Sha’ban 16, 1445H
+— Sha’ban 17, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
