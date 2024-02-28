@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Those who set the Ranks_</sub><br>
-**Surah As-Saffat** (37: 136)
+<sub>_The Iron_</sub><br>
+**Surah Al-Hadid** (57: 23)
 
-> Then We ˹utterly˺ destroyed the rest.
+> ˹We let you know this˺ so that you neither grieve over what you have missed nor boast over what He has granted you. For Allah does not like whoever is arrogant, boastful—
 
-— Sha’ban 17, 1445H
+— Sha’ban 18, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
