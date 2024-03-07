@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Emissaries_</sub><br>
-**Surah Al-Mursalat** (77: 48)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 164)
 
-> When it is said to them, “Bow down ˹before Allah,” they do not bow.
+> I do not ask you for any reward for this ˹message˺. My reward is only from the Lord of all worlds.
 
-— Sha’ban 25, 1445H
+— Sha’ban 26, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
