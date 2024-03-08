@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 164)
+<sub>_The Cleaving_</sub><br>
+**Surah Al-Infitar** (82: 13)
 
-> I do not ask you for any reward for this ˹message˺. My reward is only from the Lord of all worlds.
+> Indeed, the virtuous will be in bliss,
 
-— Sha’ban 26, 1445H
+— Sha’ban 27, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
