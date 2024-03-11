@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 131)
+<sub>_The Reality_</sub><br>
+**Surah Al-Haqqah** (69: 52)
 
-> When his Lord ordered him, “Submit ˹to My Will˺,” he responded, “I submit to the Lord of all worlds.”
+> So glorify the Name of your Lord, the Greatest.
 
-— Sha’ban 29, 1445H
+— Ramadhan 1, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
