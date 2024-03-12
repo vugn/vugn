@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Reality_</sub><br>
-**Surah Al-Haqqah** (69: 52)
+<sub>_The Women_</sub><br>
+**Surah An-Nisa** (4: 166)
 
-> So glorify the Name of your Lord, the Greatest.
+> Yet ˹if you are denied, O  Prophet,˺ Allah bears witness to what He has sent down to you—He has sent it with His knowledge. The angels too bear witness. And Allah ˹alone˺ is sufficient as a Witness.
 
-— Ramadhan 1, 1445H
+— Ramadhan 2, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
