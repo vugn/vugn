@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Criterian_</sub><br>
-**Surah Al-Furqan** (25: 49)
+<sub>_The Stories_</sub><br>
+**Surah Al-Qasas** (28: 23)
 
-> giving life to a lifeless land, and providing water for countless animals and humans of Our Own creation.
+> When he arrived at the well of Midian, he found a group of people watering ˹their herds˺. Apart from them, he noticed two women holding back ˹their herd˺. He asked ˹them˺, “What is the matter?” They replied, “We cannot water ˹our animals˺ until the ˹other˺ shepherds are done, for our father is a very old man.”
 
-— Ramadhan 3, 1445H
+— Ramadhan 4, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
