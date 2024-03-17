@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Those who set the Ranks_</sub><br>
-**Surah As-Saffat** (37: 151)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 74)
 
-> Indeed, it is one of their ˹outrageous˺ fabrications to say,
+> He chooses whoever He wills to receive His mercy. And Allah is the Lord of infinite bounty.
 
-— Ramadhan 6, 1445H
+— Ramadhan 7, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
