@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Luqman_</sub><br>
-**Surah Luqman** (31: 13)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 69)
 
-> And ˹remember˺ when Luqmân said to his son, while advising him, “O my dear son! Never associate ˹anything˺ with Allah ˹in worship˺, for associating ˹others with Him˺ is truly the worst of all wrongs.”
+> Some of the People of the Book wish to mislead you ˹believers˺. They mislead none but themselves, yet they fail to perceive it.
 
-— Ramadhan 9, 1445H
+— Ramadhan 10, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
