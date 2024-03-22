@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Pen_</sub><br>
-**Surah Al-Qalam** (68: 44)
+<sub>_The Table Spread_</sub><br>
+**Surah Al-Ma'idah** (5: 105)
 
-> So leave to Me ˹O Prophet˺ those who reject this message. We will gradually draw them to destruction in ways they cannot comprehend.
+> O believers! You are accountable only for yourselves. It will not harm you if someone chooses to deviate—as long as you are ˹rightly˺ guided. To Allah you will all return, and He will inform you of what you used to do.
 
-— Ramadhan 11, 1445H
+— Ramadhan 12, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
