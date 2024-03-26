@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Hypocrites_</sub><br>
-**Surah Al-Munafiqun** (63: 10)
+<sub>_The Inevitable_</sub><br>
+**Surah Al-Waqi'ah** (56: 70)
 
-> And donate from what We have provided for you before death comes to one of you, and you cry, “My Lord! If only You delayed me for a short while, I would give in charity and be one of the righteous.”
+> If We willed, We could make it salty. Will you not then give thanks?
 
-— Ramadhan 15, 1445H
+— Ramadhan 16, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
