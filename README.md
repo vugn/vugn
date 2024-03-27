@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Inevitable_</sub><br>
-**Surah Al-Waqi'ah** (56: 70)
+<sub>_The Thunder_</sub><br>
+**Surah Ar-Ra'd** (13: 25)
 
-> If We willed, We could make it salty. Will you not then give thanks?
+> And those who violate Allah’s covenant after it has been affirmed, break whatever ˹ties˺ Allah has ordered to be maintained, and spread corruption in the land—it is they who will be condemned and will have the worst abode. 
 
-— Ramadhan 16, 1445H
+— Ramadhan 17, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
