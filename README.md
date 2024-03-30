@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Bee_</sub><br>
-**Surah An-Nahl** (16: 108)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 176)
 
-> They are the ones whose hearts, ears, and eyes are sealed by Allah, and it is they who are ˹truly˺ heedless.
+> ˹O Prophet!˺ Do not grieve for those who race to disbelieve—surely they will not harm Allah in the least. It is Allah’s Will to disallow them a share in the Hereafter, and they will suffer a tremendous punishment.
 
-— Ramadhan 19, 1445H
+— Ramadhan 20, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
