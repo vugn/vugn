@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Family of Imran_</sub><br>
-**Surah Ali 'Imran** (3: 176)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 36)
 
-> ˹O Prophet!˺ Do not grieve for those who race to disbelieve—surely they will not harm Allah in the least. It is Allah’s Will to disallow them a share in the Hereafter, and they will suffer a tremendous punishment.
+> They replied, “Let him and his brother wait and dispatch mobilizers to all cities
 
-— Ramadhan 20, 1445H
+— Ramadhan 21, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
