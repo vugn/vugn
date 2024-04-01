@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 36)
+<sub>_The Rooms_</sub><br>
+**Surah Al-Hujurat** (49: 6)
 
-> They replied, “Let him and his brother wait and dispatch mobilizers to all cities
+> O believers, if an evildoer brings you any news, verify ˹it˺ so you do not harm people unknowingly, becoming regretful for what you have done.
 
-— Ramadhan 21, 1445H
+— Ramadhan 22, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
