@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Joseph_</sub><br>
-**Surah Yusuf** (12: 98)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 83)
 
-> He said, “I will pray to my Lord for your forgiveness. He ˹alone˺ is indeed the All-Forgiving, Most Merciful.”
+> This was the argument We gave Abraham against his people. We elevate in rank whoever We please. Surely your Lord is All-Wise, All-Knowing.
 
-— Ramadhan 23, 1445H
+— Ramadhan 24, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
