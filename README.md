@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 83)
+<sub>_Abrahim_</sub><br>
+**Surah Ibrahim** (14: 14)
 
-> This was the argument We gave Abraham against his people. We elevate in rank whoever We please. Surely your Lord is All-Wise, All-Knowing.
+> and make you reside in the land after them. This is for whoever is in awe of standing before Me and fears My warning.”
 
-— Ramadhan 24, 1445H
+— Ramadhan 25, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
