@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 14)
+<sub>_Joseph_</sub><br>
+**Surah Yusuf** (12: 97)
 
-> and make you reside in the land after them. This is for whoever is in awe of standing before Me and fears My warning.”
+> They begged, “O our father! Pray for the forgiveness of our sins. We have certainly been sinful.”
 
-— Ramadhan 25, 1445H
+— Ramadhan 26, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
