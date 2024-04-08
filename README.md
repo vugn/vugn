@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 31)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 91)
 
-> He taught Adam the names of all things, then He presented them to the angels and said, “Tell Me the names of these, if what you say is true?”
+> Then an ˹overwhelming˺ earthquake struck them and they fell lifeless in their homes.
 
-— Ramadhan 28, 1445H
+— Ramadhan 29, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
