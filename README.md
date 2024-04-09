@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Heights_</sub><br>
-**Surah Al-A'raf** (7: 91)
+<sub>_Those who drag forth_</sub><br>
+**Surah An-Nazi'at** (79: 28)
 
-> Then an ˹overwhelming˺ earthquake struck them and they fell lifeless in their homes.
+> raising it high and forming it flawlessly.
 
-— Ramadhan 29, 1445H
+— Ramadhan 30, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
