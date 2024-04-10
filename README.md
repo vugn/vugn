@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Those who drag forth_</sub><br>
-**Surah An-Nazi'at** (79: 28)
+<sub>_The Traducer_</sub><br>
+**Surah Al-Humazah** (104: 2)
 
-> raising it high and forming it flawlessly.
+> who amasses wealth ˹greedily˺ and counts it ˹repeatedly˺,
 
-— Ramadhan 30, 1445H
+— Shawwal 1, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
