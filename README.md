@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 19)
+<sub>_The Night Journey_</sub><br>
+**Surah Al-Isra** (17: 33)
 
-> Have you not seen that Allah created the heavens and the earth for a reason? If He wills, He can eliminate you and produce a new creation.
+> Do not take a ˹human˺ life—made sacred by Allah—except with ˹legal˺ right. If anyone is killed unjustly, We have given their heirs the authority, but do not let them exceed limits in retaliation, for they are already supported ˹by law˺.
 
-— Shawwal 3, 1445H
+— Shawwal 4, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
