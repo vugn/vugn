@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Forgiver_</sub><br>
-**Surah Ghafir** (40: 37)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 145)
 
-> leading up to the heavens and look for the God of Moses, although I am sure he is a liar.” And so Pharaoh’s evil deeds were made so appealing to him that he was hindered from the ˹Right˺ Way. But the plotting of Pharaoh was only in vain.
+> No soul can ever die without Allah’s Will at the destined time. Those who desire worldly gain, We will let them have it, and those who desire heavenly reward, We will grant it to them. And We will reward those who are grateful.
 
-— Shawwal 5, 1445H
+— Shawwal 6, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
