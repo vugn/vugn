@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Night_</sub><br>
-**Surah Al-Layl** (92: 4)
+<sub>_The Ant_</sub><br>
+**Surah An-Naml** (27: 79)
 
-> Surely the ends you strive for are diverse.
+> So put your trust in Allah, for you are surely upon the ˹Path of˺ clear truth.
 
-— Shawwal 9, 1445H
+— Shawwal 10, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
