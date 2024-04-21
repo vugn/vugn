@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Mount_</sub><br>
-**Surah At-Tur** (52: 36)
+<sub>_The Ornaments of Gold_</sub><br>
+**Surah Az-Zukhruf** (43: 37)
 
-> Or did they create the heavens and the earth? In fact, they have no certainty.
+> who will certainly hinder them from the ˹Right˺ Way while they think they are ˹rightly˺ guided.
 
-— Shawwal 11, 1445H
+— Shawwal 12, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
