@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Light_</sub><br>
-**Surah An-Nur** (24: 54)
+<sub>_Abrahim_</sub><br>
+**Surah Ibrahim** (14: 17)
 
-> Say, “Obey Allah and obey the Messenger. But if you turn away, then he is only responsible for his duty and you are responsible for yours. And if you obey him, you will be ˹rightly˺ guided. The Messenger’s duty is only to deliver ˹the message˺ clearly.”
+> which they will sip with difficulty, and can hardly swallow. Death will overwhelm them from every side, yet they will not ˹be able to˺ die. Awaiting them still is harsher torment.
 
-— Shawwal 16, 1445H
+— Shawwal 17, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
