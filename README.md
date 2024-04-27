@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 17)
+<sub>_The Beneficent_</sub><br>
+**Surah Ar-Rahman** (55: 4)
 
-> which they will sip with difficulty, and can hardly swallow. Death will overwhelm them from every side, yet they will not ˹be able to˺ die. Awaiting them still is harsher torment.
+> ˹and˺ taught them speech.
 
-— Shawwal 17, 1445H
+— Shawwal 18, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
