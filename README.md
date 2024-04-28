@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Beneficent_</sub><br>
-**Surah Ar-Rahman** (55: 4)
+<sub>_The Cow_</sub><br>
+**Surah Al-Baqarah** (2: 73)
 
-> ˹and˺ taught them speech.
+> So We instructed, “Strike the dead body with a piece of the cow.” This is how ˹easily˺ Allah brings the dead to life, showing you His signs so that you may understand.
 
-— Shawwal 18, 1445H
+— Shawwal 19, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
