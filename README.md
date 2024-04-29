@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 73)
+<sub>_The Rivalry in world increase_</sub><br>
+**Surah At-Takathur** (102: 5)
 
-> So We instructed, “Strike the dead body with a piece of the cow.” This is how ˹easily˺ Allah brings the dead to life, showing you His signs so that you may understand.
+> Indeed, if you were to know ˹your fate˺ with certainty, ˹you would have acted differently˺.
 
-— Shawwal 19, 1445H
+— Shawwal 20, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
