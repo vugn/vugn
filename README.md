@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Night Journey_</sub><br>
-**Surah Al-Isra** (17: 91)
+<sub>_Muhammad_</sub><br>
+**Surah Muhammad** (47: 36)
 
-> or until you have a garden of palm trees and vineyards, and cause rivers to flow abundantly in it,
+> This worldly life is no more than play and amusement. But if you are faithful and mindful ˹of Allah˺, He will grant you your ˹full˺ reward, and will not ask you ˹to donate all˺ your wealth.
 
-— Shawwal 21, 1445H
+— Shawwal 22, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
