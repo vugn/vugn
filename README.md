@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Muhammad_</sub><br>
-**Surah Muhammad** (47: 36)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 140)
 
-> This worldly life is no more than play and amusement. But if you are faithful and mindful ˹of Allah˺, He will grant you your ˹full˺ reward, and will not ask you ˹to donate all˺ your wealth.
+> Lost indeed are those who have murdered their own children foolishly out of ignorance and have forbidden what Allah has provided for them—falsely attributing lies to Allah. They have certainly strayed and are not ˹rightly˺ guided.
 
-— Shawwal 22, 1445H
+— Shawwal 23, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
