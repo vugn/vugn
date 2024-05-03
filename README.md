@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 140)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 90)
 
-> Lost indeed are those who have murdered their own children foolishly out of ignorance and have forbidden what Allah has provided for them—falsely attributing lies to Allah. They have certainly strayed and are not ˹rightly˺ guided.
+> The disbelieving chiefs of his people threatened, “If you follow Shu’aib, you will surely be losers!”
 
-— Shawwal 23, 1445H
+— Shawwal 24, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
