@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 88)
+<sub>_The Bee_</sub><br>
+**Surah An-Nahl** (16: 95)
 
-> This is Allah’s guidance with which He guides whoever He wills of His servants. Had they associated others with Him ˹in worship˺, their ˹good˺ deeds would have been wasted.
+> And do not trade Allah’s covenant for a fleeting gain. What is with Allah is certainly far better for you, if only you knew.
 
-— Shawwal 25, 1445H
+— Shawwal 26, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
