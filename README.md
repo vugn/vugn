@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Bee_</sub><br>
-**Surah An-Nahl** (16: 95)
+<sub>_The Emissaries_</sub><br>
+**Surah Al-Mursalat** (77: 7)
 
-> And do not trade Allah’s covenant for a fleeting gain. What is with Allah is certainly far better for you, if only you knew.
+> Surely, what you are promised will come to pass.
 
-— Shawwal 26, 1445H
+— Shawwal 27, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
