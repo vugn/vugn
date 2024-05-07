@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Emissaries_</sub><br>
-**Surah Al-Mursalat** (77: 7)
+<sub>_The Rivalry in world increase_</sub><br>
+**Surah At-Takathur** (102: 2)
 
-> Surely, what you are promised will come to pass.
+> until you end up in ˹your˺ graves.
 
-— Shawwal 27, 1445H
+— Shawwal 28, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
