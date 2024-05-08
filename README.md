@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Rivalry in world increase_</sub><br>
-**Surah At-Takathur** (102: 2)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 27)
 
-> until you end up in ˹your˺ graves.
+> O children of Adam! Do not let Satan deceive you as he tempted your parents out of Paradise and caused their cover to be removed in order to expose their nakedness. Surely he and his soldiers watch you from where you cannot see them. We have made the devils allies of those who disbelieve.
 
-— Shawwal 28, 1445H
+— Shawwal 29, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
