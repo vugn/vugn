@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Hud_</sub><br>
-**Surah Hud** (11: 96)
+<sub>_The Bee_</sub><br>
+**Surah An-Nahl** (16: 13)
 
-> Indeed, We sent Moses with Our signs and compelling proof
+> And ˹He subjected˺ for you whatever He has created on earth of varying colours. Surely in this is a sign for those who are mindful.
 
-— Dhu al-Qi’dah 3, 1445H
+— Dhu al-Qi’dah 4, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
