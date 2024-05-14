@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 53)
+<sub>_The Stories_</sub><br>
+**Surah Al-Qasas** (28: 9)
 
-> The wicked will see the Fire and realize that they are bound to fall into it, and will find no way to avoid it.
+> Pharaoh’s wife said ˹to him˺, “˹This baby is˺ a source of joy for me and you. Do not kill him. Perhaps he may be useful to us or we may adopt him as a son.” They were unaware ˹of what was to come˺.
 
-— Dhu al-Qi’dah 5, 1445H
+— Dhu al-Qi’dah 6, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
