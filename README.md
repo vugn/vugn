@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Thunder_</sub><br>
-**Surah Ar-Ra'd** (13: 41)
+<sub>_The City_</sub><br>
+**Surah Al-Balad** (90: 12)
 
-> Do they not see that We gradually reduce their land from its borders? Allah decides—none can reverse His decision. And He is swift in reckoning.
+> And what will make you realize what ˹attempting˺ the challenging path is?
 
-— Dhu al-Qi’dah 9, 1445H
+— Dhu al-Qi’dah 10, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
