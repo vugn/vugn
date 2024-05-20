@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Muhammad_</sub><br>
-**Surah Muhammad** (47: 8)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 185)
 
-> As for the disbelievers, may they be doomed and may He render their deeds void.
+> They replied, “You are simply bewitched!
 
-— Dhu al-Qi’dah 11, 1445H
+— Dhu al-Qi’dah 12, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
