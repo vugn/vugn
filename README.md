@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Spider_</sub><br>
-**Surah Al-'Ankabut** (29: 45)
+<sub>_The Prophets_</sub><br>
+**Surah Al-Anbya** (21: 56)
 
-> Recite what has been revealed to you of the Book and establish prayer. Indeed, ˹genuine˺ prayer should deter ˹one˺ from indecency and wickedness. The remembrance of Allah is ˹an˺ even greater ˹deterrent˺. And Allah ˹fully˺ knows what you ˹all˺ do.
+> He replied, “In fact, your Lord is the Lord of the heavens and the earth, Who created them ˹both˺. And to that I bear witness.”
 
-— Dhu al-Qi’dah 13, 1445H
+— Dhu al-Qi’dah 14, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
