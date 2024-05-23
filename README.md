@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Prophets_</sub><br>
-**Surah Al-Anbya** (21: 56)
+<sub>_The Bee_</sub><br>
+**Surah An-Nahl** (16: 20)
 
-> He replied, “In fact, your Lord is the Lord of the heavens and the earth, Who created them ˹both˺. And to that I bear witness.”
+> But those ˹idols˺ they invoke besides Allah cannot create anything—they themselves are created.
 
-— Dhu al-Qi’dah 14, 1445H
+— Dhu al-Qi’dah 15, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
