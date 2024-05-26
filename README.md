@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Pen_</sub><br>
-**Surah Al-Qalam** (68: 38)
+<sub>_The Combined Forces_</sub><br>
+**Surah Al-Ahzab** (33: 2)
 
-> that you will have whatever you choose?
+> Follow what is revealed to you from your Lord. Surely Allah is All-Aware of what you ˹all˺ do.
 
-— Dhu al-Qi’dah 17, 1445H
+— Dhu al-Qi’dah 18, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
