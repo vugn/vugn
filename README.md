@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Combined Forces_</sub><br>
-**Surah Al-Ahzab** (33: 25)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 121)
 
-> And Allah drove back the disbelievers in their rage, totally empty-handed. And Allah spared the believers from fighting. For Allah is All-Powerful, Almighty.
+> ˹Remember, O  Prophet,˺ when you left your home in the early morning to position the believers in the battlefield. And Allah is All-Hearing, All-Knowing.
 
-— Dhu al-Qi’dah 21, 1445H
+— Dhu al-Qi’dah 22, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
