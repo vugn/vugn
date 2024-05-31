@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Family of Imran_</sub><br>
-**Surah Ali 'Imran** (3: 121)
+<sub>_The Sincerity_</sub><br>
+**Surah Al-Ikhlas** (112: 1)
 
-> ˹Remember, O  Prophet,˺ when you left your home in the early morning to position the believers in the battlefield. And Allah is All-Hearing, All-Knowing.
+> Say, ˹O Prophet,˺ “He is Allah—One ˹and Indivisible˺;
 
-— Dhu al-Qi’dah 22, 1445H
+— Dhu al-Qi’dah 23, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
