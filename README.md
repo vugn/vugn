@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Tidings_</sub><br>
-**Surah An-Naba** (78: 5)
+<sub>_Hud_</sub><br>
+**Surah Hud** (11: 39)
 
-> Again, no! They will come to know.
+> You will soon come to know who will be visited by a humiliating torment ˹in this life˺ and overwhelmed by an everlasting punishment ˹in the next˺.”
 
-— Dhu al-Qi’dah 24, 1445H
+— Dhu al-Qi’dah 25, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
