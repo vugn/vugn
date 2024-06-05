@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ya Sin_</sub><br>
-**Surah Ya-Sin** (36: 70)
+<sub>_The Cleaving_</sub><br>
+**Surah Al-Infitar** (82: 18)
 
-> to warn whoever is ˹truly˺ alive and fulfil the decree ˹of torment˺ against the disbelievers.
+> Again, what will make you realize what Judgment Day is?
 
-— Dhu al-Qi’dah 27, 1445H
+— Dhu al-Qi’dah 28, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
