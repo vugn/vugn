@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Spoils of War_</sub><br>
-**Surah Al-Anfal** (8: 52)
+<sub>_The Rocky Tract_</sub><br>
+**Surah Al-Hijr** (15: 89)
 
-> Their fate is that of the people of Pharaoh and those before them—they all disbelieved in Allah’s signs, so Allah seized them for their sins. Indeed, Allah is All-Powerful, severe in punishment.
+> And say, “I am truly sent with a clear warning”—
 
-— Dhu al-Qi’dah 29, 1445H
+— Dhu al-Hijjah 1, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
