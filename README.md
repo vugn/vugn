@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Rocky Tract_</sub><br>
-**Surah Al-Hijr** (15: 89)
+<sub>_Jonah_</sub><br>
+**Surah Yunus** (10: 44)
 
-> And say, “I am truly sent with a clear warning”—
+> Indeed, Allah does not wrong people in the least, but it is people who wrong themselves.
 
-— Dhu al-Hijjah 1, 1445H
+— Dhu al-Hijjah 2, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
