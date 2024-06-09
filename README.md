@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Jonah_</sub><br>
-**Surah Yunus** (10: 44)
+<sub>_The Cow_</sub><br>
+**Surah Al-Baqarah** (2: 74)
 
-> Indeed, Allah does not wrong people in the least, but it is people who wrong themselves.
+> Even then your hearts became hardened like a rock or even harder, for some rocks gush rivers; others split, spilling water; while others are humbled in awe of Allah. And Allah is never unaware of what you do.
 
-— Dhu al-Hijjah 2, 1445H
+— Dhu al-Hijjah 3, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
