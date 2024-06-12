@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 59)
+<sub>_The Stories_</sub><br>
+**Surah Al-Qasas** (28: 49)
 
-> Those ˹are the˺ societies We destroyed when they persisted in wrong, and We had set a time for their destruction.
+> Say, ˹O Prophet,˺ “Bring then a scripture from Allah which is a better guide than these two so I may follow it, if your claim is true.”
 
-— Dhu al-Hijjah 5, 1445H
+— Dhu al-Hijjah 6, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
