@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Inevitable_</sub><br>
-**Surah Al-Waqi'ah** (56: 80)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 90)
 
-> ˹It is˺ a revelation from the Lord of all worlds.
+> ˹On that Day˺ Paradise will be brought near to the God-fearing,
 
-— Dhu al-Hijjah 7, 1445H
+— Dhu al-Hijjah 8, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
