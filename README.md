@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 90)
+<sub>_The Believers_</sub><br>
+**Surah Al-Mu'minun** (23: 21)
 
-> ˹On that Day˺ Paradise will be brought near to the God-fearing,
+> And there is certainly a lesson for you in cattle, from whose bellies We give you ˹milk˺ to drink, and in them are many other benefits for you, and from them you may eat.
 
-— Dhu al-Hijjah 8, 1445H
+— Dhu al-Hijjah 9, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
