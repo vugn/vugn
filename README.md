@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Believers_</sub><br>
-**Surah Al-Mu'minun** (23: 21)
+<sub>_Hud_</sub><br>
+**Surah Hud** (11: 46)
 
-> And there is certainly a lesson for you in cattle, from whose bellies We give you ˹milk˺ to drink, and in them are many other benefits for you, and from them you may eat.
+> Allah replied, “O Noah! He is certainly not of your family—he was entirely of unrighteous conduct. So do not ask Me about what you have no knowledge of! I warn you so you do not fall into ignorance.”
 
-— Dhu al-Hijjah 9, 1445H
+— Dhu al-Hijjah 10, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
