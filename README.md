@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Hud_</sub><br>
-**Surah Hud** (11: 46)
+<sub>_The Winnowing Winds_</sub><br>
+**Surah Adh-Dhariyat** (51: 21)
 
-> Allah replied, “O Noah! He is certainly not of your family—he was entirely of unrighteous conduct. So do not ask Me about what you have no knowledge of! I warn you so you do not fall into ignorance.”
+> as there are within yourselves. Can you not see?
 
-— Dhu al-Hijjah 10, 1445H
+— Dhu al-Hijjah 11, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
