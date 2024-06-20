@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Exile_</sub><br>
-**Surah Al-Hashr** (59: 21)
+<sub>_The Ornaments of Gold_</sub><br>
+**Surah Az-Zukhruf** (43: 77)
 
-> Had We sent down this Quran upon a mountain, you would have certainly seen it humbled and torn apart in awe of Allah. We set forth such comparisons for people, ˹so˺ perhaps they may reflect.
+> They will cry, “O Mâlik! Let your Lord finish us off.” He will answer, “You are definitely here to stay.”
 
-— Dhu al-Hijjah 13, 1445H
+— Dhu al-Hijjah 14, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
