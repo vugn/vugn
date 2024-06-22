@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 67)
+<sub>_The Emissaries_</sub><br>
+**Surah Al-Mursalat** (77: 6)
 
-> Surely in this is a sign. Yet most of them would not believe.
+> ending excuses and giving warnings.
 
-— Dhu al-Hijjah 15, 1445H
+— Dhu al-Hijjah 16, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
