@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Emissaries_</sub><br>
-**Surah Al-Mursalat** (77: 6)
+<sub>_Originator_</sub><br>
+**Surah Fatir** (35: 13)
 
-> ending excuses and giving warnings.
+> He merges the night into the day and the day into the night, and has subjected the sun and the moon, each orbiting for an appointed term. That is Allah—your Lord! All authority belongs to Him. But those ˹idols˺ you invoke besides Him do not possess even the skin of a date stone.
 
-— Dhu al-Hijjah 16, 1445H
+— Dhu al-Hijjah 17, 1445H
 <!-- AYAHADAY:END -->
 
 <br>
