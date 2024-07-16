@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 238)
+<sub>_The Table Spread_</sub><br>
+**Surah Al-Ma'idah** (5: 99)
 
-> Observe the ˹five obligatory˺ prayers—especially the middle prayer—and stand in true devotion to Allah.
+> The Messenger’s duty is only to deliver ˹the message˺. And Allah ˹fully˺ knows what you reveal and what you conceal.
 
-— Muharram 9, 1446H
+— Muharram 10, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
