@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Rocky Tract_</sub><br>
-**Surah Al-Hijr** (15: 4)
+<sub>_Originator_</sub><br>
+**Surah Fatir** (35: 20)
 
-> We have never destroyed a society without a destined term.
+> nor are the darkness and the light,
 
-— Muharram 23, 1446H
+— Muharram 24, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
