@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Romans_</sub><br>
-**Surah Ar-Rum** (30: 54)
+<sub>_The Believers_</sub><br>
+**Surah Al-Mu'minun** (23: 115)
 
-> It is Allah Who created you in a state of weakness, then developed ˹your˺ weakness into strength, then developed ˹your˺ strength into weakness and old age. He creates whatever He wills. For He is the All-Knowing, Most Capable.
+> Did you then think that We had created you without purpose, and that you would never be returned to Us?”
 
-— Safar 2, 1446H
+— Safar 3, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
