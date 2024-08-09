@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Mary_</sub><br>
-**Surah Maryam** (19: 27)
+<sub>_The Repentance_</sub><br>
+**Surah At-Tawbah** (9: 39)
 
-> Then she returned to her people, carrying him. They said ˹in shock˺, “O Mary! You have certainly done a horrible thing!
+> If you do not march forth, He will afflict you with a painful torment and replace you with other people. You are not harming Him in the least. And Allah is Most Capable of everything.
 
-— Safar 4, 1446H
+— Safar 5, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
