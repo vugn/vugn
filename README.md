@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 14)
+<sub>_The Believers_</sub><br>
+**Surah Al-Mu'minun** (23: 85)
 
-> and make you reside in the land after them. This is for whoever is in awe of standing before Me and fears My warning.”
+> They will reply, “To Allah!” Say, “Why are you not then mindful?”
 
-— Safar 6, 1446H
+— Safar 7, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
