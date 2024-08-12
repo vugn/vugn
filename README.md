@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Believers_</sub><br>
-**Surah Al-Mu'minun** (23: 85)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 49)
 
-> They will reply, “To Allah!” Say, “Why are you not then mindful?”
+> But those who deny Our signs will be afflicted with punishment for their rebelliousness.
 
-— Safar 7, 1446H
+— Safar 8, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
