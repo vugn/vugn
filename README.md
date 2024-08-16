@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 4)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 9)
 
-> Whenever a sign comes to them from their Lord, they turn away from it.
+> And your Lord is certainly the Almighty, Most Merciful.
 
-— Safar 11, 1446H
+— Safar 12, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
