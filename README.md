@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ya Sin_</sub><br>
-**Surah Ya-Sin** (36: 59)
+<sub>_The Ornaments of Gold_</sub><br>
+**Surah Az-Zukhruf** (43: 68)
 
-> ˹Then the disbelievers will be told,˺ “Step away ˹from the believers˺ this Day, O  wicked ones!
+> ˹who will be told,˺ “O My servants! There is no fear for you Today, nor will you grieve—
 
-— Safar 18, 1446H
+— Safar 19, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
