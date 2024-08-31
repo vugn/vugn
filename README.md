@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Inevitable_</sub><br>
-**Surah Al-Waqi'ah** (56: 88)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 31)
 
-> So, if the deceased is one of those brought near ˹to Us˺,
+> Pharaoh demanded, “Bring it then, if what you say is true.”
 
-— Safar 26, 1446H
+— Safar 27, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
