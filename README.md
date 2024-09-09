@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ta-Ha_</sub><br>
-**Surah Taha** (20: 23)
+<sub>_The Women_</sub><br>
+**Surah An-Nisa** (4: 161)
 
-> so that We may show you some of Our greatest signs.
+> taking interest despite its prohibition, and consuming people’s wealth unjustly. We have prepared for the disbelievers among them a painful punishment.
 
-— Rabi' al-Awwal 5, 1446H
+— Rabi' al-Awwal 6, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
