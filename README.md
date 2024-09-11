@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Bee_</sub><br>
-**Surah An-Nahl** (16: 7)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 39)
 
-> And they carry your loads to ˹distant˺ lands which you could not otherwise reach without great hardship. Surely your Lord is Ever Gracious, Most Merciful.
+> Those who deny Our signs are ˹wilfully˺ deaf and dumb—lost in darkness. Allah leaves whoever He wills to stray and guides whoever He wills to the Straight Way.
 
-— Rabi' al-Awwal 7, 1446H
+— Rabi' al-Awwal 8, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
