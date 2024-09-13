@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 182)
+<sub>_Mary_</sub><br>
+**Surah Maryam** (19: 28)
 
-> Weigh with an even balance,
+> O  sister of Aaron! Your father was not an indecent man, nor was your mother unchaste.”
 
-— Rabi' al-Awwal 9, 1446H
+— Rabi' al-Awwal 10, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
