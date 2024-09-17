@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 57)
+<sub>_The Repentance_</sub><br>
+**Surah At-Tawbah** (9: 98)
 
-> So We lured the tyrants out of ˹their˺ gardens, springs,
+> And among the nomads are those who consider what they donate to be a loss and await your misfortune. May ill-fortune befall them! And Allah is All-Hearing, All-Knowing.
 
-— Rabi' al-Awwal 13, 1446H
+— Rabi' al-Awwal 14, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
