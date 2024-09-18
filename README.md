@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Repentance_</sub><br>
-**Surah At-Tawbah** (9: 98)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 101)
 
-> And among the nomads are those who consider what they donate to be a loss and await your misfortune. May ill-fortune befall them! And Allah is All-Hearing, All-Knowing.
+> nor a close friend.
 
-— Rabi' al-Awwal 14, 1446H
+— Rabi' al-Awwal 15, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
