@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 101)
+<sub>_The Criterian_</sub><br>
+**Surah Al-Furqan** (25: 56)
 
-> nor a close friend.
+> And We have sent you ˹O Prophet˺ only as a deliverer of good news and a warner.
 
-— Rabi' al-Awwal 15, 1446H
+— Rabi' al-Awwal 16, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
