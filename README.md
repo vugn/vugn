@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Thunder_</sub><br>
-**Surah Ar-Ra'd** (13: 10)
+<sub>_The Enshrouded One_</sub><br>
+**Surah Al-Muzzammil** (73: 16)
 
-> It is the same ˹to Him˺ whether any of you speaks secretly or openly, whether one hides in the darkness of night or goes about in broad daylight.
+> But Pharaoh disobeyed the messenger, so We seized him with a stern grip.
 
-— Rabi' al-Awwal 17, 1446H
+— Rabi' al-Awwal 18, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
