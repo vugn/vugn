@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Enshrouded One_</sub><br>
-**Surah Al-Muzzammil** (73: 16)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 48)
 
-> But Pharaoh disobeyed the messenger, so We seized him with a stern grip.
+> They will be presented before your Lord in rows, ˹and the deniers will be told,˺ “You have surely returned to Us ˹all alone˺ as We created you the first time, although you ˹always˺ claimed that We would never appoint a time for your return.”
 
-— Rabi' al-Awwal 18, 1446H
+— Rabi' al-Awwal 19, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
