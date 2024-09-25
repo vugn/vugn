@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Man_</sub><br>
-**Surah Al-Insan** (76: 9)
+<sub>_The Pen_</sub><br>
+**Surah Al-Qalam** (68: 38)
 
-> ˹saying to themselves,˺ “We feed you only for the sake of Allah, seeking neither reward nor thanks from you.
+> that you will have whatever you choose?
 
-— Rabi' al-Awwal 21, 1446H
+— Rabi' al-Awwal 22, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
