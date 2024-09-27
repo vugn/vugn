@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Women_</sub><br>
-**Surah An-Nisa** (4: 92)
+<sub>_The Inevitable_</sub><br>
+**Surah Al-Waqi'ah** (56: 12)
 
-> It is not lawful for a believer to kill another except by mistake. And whoever kills a believer unintentionally must free a believing slave and pay blood-money to the victim’s family—unless they waive it charitably. But if the victim is a believer from a hostile people, then a believing slave must be freed. And if the victim is from a people bound with you in a treaty, then blood-money must be paid to the family along with freeing a believing slave. Those who are unable, let them fast two consecutive months—as a means of repentance to Allah. And Allah is All-Knowing, All-Wise.
+> in the Gardens of Bliss.
 
-— Rabi' al-Awwal 23, 1446H
+— Rabi' al-Awwal 24, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
