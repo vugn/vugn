@@ -3,7 +3,7 @@
 
 
 ### <h3 align="left">Personal Stuffs:</h3>
-- 🔭 I’m currently working on **Ekspor Yuk Indonesia*
+- 🔭 I’m currently working on **Ekspor Yuk Indonesia**
 - 🌱 I’m currently learning **Full Stack Enginner**
 - 💕 I'm currently fall in love with **NestJS and Flutter**
 - ⚡ I like **Music** and **Coffee**
