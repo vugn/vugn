@@ -3,10 +3,10 @@
 
 
 ### <h3 align="left">Personal Stuffs:</h3>
-- 🔭 I’m currently working on **Flutter Project**
-- 🌱 I’m currently learning **Flutter development**
-- 💕 I'm currently fall in love with **Flutter**
-- ⚡ I like **Music** and **Chocolate Milk**
+- 🔭 I’m currently working on **Ekspor Yuk Indonesia*
+- 🌱 I’m currently learning **Full Stack Enginner**
+- 💕 I'm currently fall in love with **NestJS and Flutter**
+- ⚡ I like **Music** and **Coffee**
 
 <br>
 
