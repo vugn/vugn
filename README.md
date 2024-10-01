@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Ornaments of Gold_</sub><br>
-**Surah Az-Zukhruf** (43: 51)
+<sub>_The Overwhelming_</sub><br>
+**Surah Al-Ghashiyah** (88: 7)
 
-> And Pharaoh called out to his people, boasting, “O my people! Am I not sovereign over Egypt as well as ˹all˺ these streams flowing at my feet? Can you not see?
+> neither nourishing nor satisfying hunger.
 
-— Rabi' al-Awwal 27, 1446H
+— Rabi' al-Awwal 28, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
