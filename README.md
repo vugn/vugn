@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Bee_</sub><br>
-**Surah An-Nahl** (16: 105)
+<sub>_The Women_</sub><br>
+**Surah An-Nisa** (4: 58)
 
-> No one fabricates lies except those who disbelieve in Allah’s revelations, and it is they who are the ˹true˺ liars.
+> Indeed, Allah commands you to return trusts to their rightful owners; and when you judge between people, judge with fairness. What a noble commandment from Allah to you! Surely Allah is All-Hearing, All-Seeing.
 
-— Rabi' al-Awwal 29, 1446H
+— Rabi' al-Awwal 30, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
