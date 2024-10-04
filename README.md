@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Women_</sub><br>
-**Surah An-Nisa** (4: 58)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 10)
 
-> Indeed, Allah commands you to return trusts to their rightful owners; and when you judge between people, judge with fairness. What a noble commandment from Allah to you! Surely Allah is All-Hearing, All-Seeing.
+> ˹Remember˺ when those youths took refuge in the cave, and said, “Our Lord! Grant us mercy from Yourself and guide us rightly through our ordeal.”
 
-— Rabi' al-Awwal 30, 1446H
+— Rabi' al-Thani 1, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
