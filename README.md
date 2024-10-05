@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 10)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 151)
 
-> ˹Remember˺ when those youths took refuge in the cave, and said, “Our Lord! Grant us mercy from Yourself and guide us rightly through our ordeal.”
+> Say, ˹O Prophet,˺ “Come! Let me recite to you what your Lord has forbidden to you: do not associate others with Him ˹in worship˺. ˹Do not fail to˺ honour your parents. Do not kill your children for fear of poverty. We provide for you and for them. Do not come near indecencies, openly or secretly. Do not take a ˹human˺ life—made sacred by Allah—except with ˹legal˺ right. This is what He has commanded you, so perhaps you will understand.
 
-— Rabi' al-Thani 1, 1446H
+— Rabi' al-Thani 2, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
