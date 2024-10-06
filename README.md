@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 151)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 31)
 
-> Say, ˹O Prophet,˺ “Come! Let me recite to you what your Lord has forbidden to you: do not associate others with Him ˹in worship˺. ˹Do not fail to˺ honour your parents. Do not kill your children for fear of poverty. We provide for you and for them. Do not come near indecencies, openly or secretly. Do not take a ˹human˺ life—made sacred by Allah—except with ˹legal˺ right. This is what He has commanded you, so perhaps you will understand.
+> O Children of Adam! Dress properly whenever you are at worship. Eat and drink, but do not waste. Surely He does not like the wasteful.
 
-— Rabi' al-Thani 2, 1446H
+— Rabi' al-Thani 3, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
