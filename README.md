@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Repentance_</sub><br>
-**Surah At-Tawbah** (9: 105)
+<sub>_Jonah_</sub><br>
+**Surah Yunus** (10: 41)
 
-> Tell ˹them, O  Prophet˺, “Do as you will. Your deeds will be observed by Allah, His Messenger, and the believers. And you will be returned to the Knower of the seen and unseen, then He will inform you of what you used to do.”
+> If they deny you, then say, “My deeds are mine and your deeds are yours. You are free of what I do and I am free of what you do!”
 
-— Rabi' al-Thani 5, 1446H
+— Rabi' al-Thani 6, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
