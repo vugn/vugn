@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Hud_</sub><br>
-**Surah Hud** (11: 88)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 13)
 
-> He said, “O my people! Consider if I stand on a clear proof from my Lord and He has blessed me with a good provision from Him. I do not want to do what I am forbidding you from. I only intend reform to the best of my ability. My success comes only through Allah. In Him I trust and to Him I turn.
+> We relate to you ˹O Prophet˺ their story in truth. They were youths who truly believed in their Lord, and We increased them in guidance.
 
-— Rabi' al-Thani 7, 1446H
+— Rabi' al-Thani 8, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
