@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 13)
+<sub>_The Thunder_</sub><br>
+**Surah Ar-Ra'd** (13: 11)
 
-> We relate to you ˹O Prophet˺ their story in truth. They were youths who truly believed in their Lord, and We increased them in guidance.
+> For each one there are successive angels before and behind, protecting them by Allah’s command. Indeed, Allah would never change a people’s state ˹of favour˺ until they change their own state ˹of faith˺. And if it is Allah’s Will to torment a people, it can never be averted, nor can they find a protector other than Him.
 
-— Rabi' al-Thani 8, 1446H
+— Rabi' al-Thani 9, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
