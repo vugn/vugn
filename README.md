@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 7)
+<sub>_The Rocky Tract_</sub><br>
+**Surah Al-Hijr** (15: 85)
 
-> And ˹remember˺ when your Lord proclaimed, ‘If you are grateful, I will certainly give you more. But if you are ungrateful, surely My punishment is severe.’”
+> We have not created the heavens and the earth and everything in between except for a purpose. And the Hour is certain to come, so forgive graciously.
 
-— Rabi' al-Thani 10, 1446H
+— Rabi' al-Thani 11, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
