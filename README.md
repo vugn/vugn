@@ -14,11 +14,11 @@
 
 <!-- AYAHADAY:START -->
 <sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 65)
+**Surah Al-Kahf** (18: 16)
 
-> There they found a servant of Ours, to whom We had granted mercy from Us and enlightened with knowledge of Our Own.
+> Since you have distanced yourselves from them and what they worship besides Allah, take refuge in the cave. Your Lord will extend His mercy to you and accommodate you in your ordeal.”
 
-— Rabi' al-Thani 14, 1446H
+— Rabi' al-Thani 15, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
