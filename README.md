@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 16)
+<sub>_Ta-Ha_</sub><br>
+**Surah Taha** (20: 82)
 
-> Since you have distanced yourselves from them and what they worship besides Allah, take refuge in the cave. Your Lord will extend His mercy to you and accommodate you in your ordeal.”
+> But I am truly Most Forgiving to whoever repents, believes, and does good, then persists on ˹true˺ guidance.”
 
-— Rabi' al-Thani 15, 1446H
+— Rabi' al-Thani 16, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
