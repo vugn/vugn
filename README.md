@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Pilgrimage_</sub><br>
-**Surah Al-Haj** (22: 40)
+<sub>_The Believers_</sub><br>
+**Surah Al-Mu'minun** (23: 29)
 
-> ˹They are˺ those who have been expelled from their homes for no reason other than proclaiming: “Our Lord is Allah.” Had Allah not repelled ˹the aggression of˺ some people by means of others, destruction would have surely claimed monasteries, churches, synagogues, and mosques in which Allah’s Name is often mentioned. Allah will certainly help those who stand up for Him. Allah is truly All-Powerful, Almighty.
+> And pray, “My Lord! Allow me a blessed landing, for You are the best accommodator.”
 
-— Rabi' al-Thani 18, 1446H
+— Rabi' al-Thani 19, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
