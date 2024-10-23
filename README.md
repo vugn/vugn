@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Believers_</sub><br>
-**Surah Al-Mu'minun** (23: 29)
+<sub>_The Light_</sub><br>
+**Surah An-Nur** (24: 35)
 
-> And pray, “My Lord! Allow me a blessed landing, for You are the best accommodator.”
+> Allah is the Light of the heavens and the earth. His light is like a niche in which there is a lamp, the lamp is in a crystal, the crystal is like a shining star, lit from ˹the oil of˺ a blessed olive tree, ˹located˺ neither to the east nor the west, whose oil would almost glow, even without being touched by fire. Light upon light! Allah guides whoever He wills to His light. And Allah sets forth parables for humanity. For Allah has ˹perfect˺ knowledge of all things.
 
-— Rabi' al-Thani 19, 1446H
+— Rabi' al-Thani 20, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
