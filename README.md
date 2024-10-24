@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Light_</sub><br>
-**Surah An-Nur** (24: 35)
+<sub>_The Criterian_</sub><br>
+**Surah Al-Furqan** (25: 63)
 
-> Allah is the Light of the heavens and the earth. His light is like a niche in which there is a lamp, the lamp is in a crystal, the crystal is like a shining star, lit from ˹the oil of˺ a blessed olive tree, ˹located˺ neither to the east nor the west, whose oil would almost glow, even without being touched by fire. Light upon light! Allah guides whoever He wills to His light. And Allah sets forth parables for humanity. For Allah has ˹perfect˺ knowledge of all things.
+> The ˹true˺ servants of the Most Compassionate are those who walk on the earth humbly, and when the foolish address them ˹improperly˺, they only respond with peace.
 
-— Rabi' al-Thani 20, 1446H
+— Rabi' al-Thani 21, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
