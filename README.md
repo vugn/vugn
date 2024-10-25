@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Criterian_</sub><br>
-**Surah Al-Furqan** (25: 63)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 23)
 
-> The ˹true˺ servants of the Most Compassionate are those who walk on the earth humbly, and when the foolish address them ˹improperly˺, they only respond with peace.
+> And never say of anything, “I will definitely do this tomorrow,”
 
-— Rabi' al-Thani 21, 1446H
+— Rabi' al-Thani 22, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
