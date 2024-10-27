@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Ant_</sub><br>
-**Surah An-Naml** (27: 40)
+<sub>_The Stories_</sub><br>
+**Surah Al-Qasas** (28: 77)
 
-> But the one who had knowledge of the Scripture said, “I can bring it to you in the blink of an eye.” So when Solomon saw it placed before him, he exclaimed, “This is by the grace of my Lord to test me whether I am grateful or ungrateful. And whoever is grateful, it is only for their own good. But whoever is ungrateful, surely my Lord is Self-Sufficient, Most Generous.”
+> Rather, seek the ˹reward˺ of the Hereafter by means of what Allah has granted you, without forgetting your share of this world. And be good ˹to others˺ as Allah has been good to you. Do not seek to spread corruption in the land, for Allah certainly does not like the corruptors.”
 
-— Rabi' al-Thani 23, 1446H
+— Rabi' al-Thani 24, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
