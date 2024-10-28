@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Stories_</sub><br>
-**Surah Al-Qasas** (28: 77)
+<sub>_The Spider_</sub><br>
+**Surah Al-'Ankabut** (29: 69)
 
-> Rather, seek the ˹reward˺ of the Hereafter by means of what Allah has granted you, without forgetting your share of this world. And be good ˹to others˺ as Allah has been good to you. Do not seek to spread corruption in the land, for Allah certainly does not like the corruptors.”
+> As for those who struggle in Our cause, We will surely guide them along Our Way. And Allah is certainly with the good-doers.
 
-— Rabi' al-Thani 24, 1446H
+— Rabi' al-Thani 25, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
