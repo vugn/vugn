@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Romans_</sub><br>
-**Surah Ar-Rum** (30: 60)
+<sub>_Luqman_</sub><br>
+**Surah Luqman** (31: 17)
 
-> So be patient, for the promise of Allah certainly is true. And do not be disturbed by those who have no sure faith.
+> “O my dear son! Establish prayer, encourage what is good and forbid what is evil, and endure patiently whatever befalls you. Surely this is a resolve to aspire to.
 
-— Rabi' al-Thani 26, 1446H
+— Rabi' al-Thani 27, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
