@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Luqman_</sub><br>
-**Surah Luqman** (31: 17)
+<sub>_The Prostration_</sub><br>
+**Surah As-Sajdah** (32: 16)
 
-> “O my dear son! Establish prayer, encourage what is good and forbid what is evil, and endure patiently whatever befalls you. Surely this is a resolve to aspire to.
+> They abandon their beds, invoking their Lord with hope and fear, and donate from what We have provided for them.
 
-— Rabi' al-Thani 27, 1446H
+— Rabi' al-Thani 28, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
