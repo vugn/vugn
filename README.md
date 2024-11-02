@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 28)
+<sub>_Sheba_</sub><br>
+**Surah Saba** (34: 39)
 
-> And patiently stick with those who call upon their Lord morning and evening, seeking His pleasure. Do not let your eyes look beyond them, desiring the luxuries of this worldly life. And do not obey those whose hearts We have made heedless of Our remembrance, who follow ˹only˺ their desires and whose state is ˹total˺ loss.
+> Say, ˹O Prophet,˺ “Surely ˹it is˺ my Lord ˹Who˺ gives abundant or limited provisions to whoever He wills of His servants. And whatever you spend in charity, He will compensate ˹you˺ for it. For He is the Best Provider.”
 
-— Rabi' al-Thani 29, 1446H
+— Rabi' al-Thani 30, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
