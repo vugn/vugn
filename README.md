@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Sheba_</sub><br>
-**Surah Saba** (34: 39)
+<sub>_Originator_</sub><br>
+**Surah Fatir** (35: 5)
 
-> Say, ˹O Prophet,˺ “Surely ˹it is˺ my Lord ˹Who˺ gives abundant or limited provisions to whoever He wills of His servants. And whatever you spend in charity, He will compensate ˹you˺ for it. For He is the Best Provider.”
+> O humanity! Indeed, Allah’s promise is true. So do not let the life of this world deceive you, nor let the Chief Deceiver deceive you about Allah.
 
-— Rabi' al-Thani 30, 1446H
+— Jumada al-Ula 1, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
