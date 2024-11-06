@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Troops_</sub><br>
-**Surah Az-Zumar** (39: 10)
+<sub>_The Forgiver_</sub><br>
+**Surah Ghafir** (40: 60)
 
-> Say ˹O Prophet, that Allah says˺, “O My servants who believe! Be mindful of your Lord. Those who do good in this world will have a good reward. And Allah’s earth is spacious. Only those who endure patiently will be given their reward without limit.”
+> Your Lord has proclaimed, “Call upon Me, I will respond to you. Surely those who are too proud to worship Me will enter Hell, fully humbled.”
 
-— Jumada al-Ula 3, 1446H
+— Jumada al-Ula 4, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
