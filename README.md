@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Wind-Curved Sandhills_</sub><br>
-**Surah Al-Ahqaf** (46: 13)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 45)
 
-> Surely those who say, “Our Lord is Allah,” and then remain steadfast—there will be no fear for them, nor will they grieve.
+> And give them a parable of this worldly life. ˹It is˺ like the plants of the earth, thriving when sustained by the rain We send down from the sky. Then they ˹soon˺ turn into chaff scattered by the wind. And Allah is fully capable of ˹doing˺ all things.
 
-— Jumada al-Ula 5, 1446H
+— Jumada al-Ula 6, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
