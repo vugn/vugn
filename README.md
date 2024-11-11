@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Exile_</sub><br>
-**Surah Al-Hashr** (59: 19)
+<sub>_The Congregation, Friday_</sub><br>
+**Surah Al-Jumu'ah** (62: 10)
 
-> And do not be like those who forgot Allah, so He made them forget themselves. It is they who are ˹truly˺ rebellious.
+> Once the prayer is over, disperse throughout the land and seek the bounty of Allah. And remember Allah often so you may be successful.
 
-— Jumada al-Ula 8, 1446H
+— Jumada al-Ula 9, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
