@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Ascending Stairways_</sub><br>
-**Surah Al-Ma'arij** (70: 19)
+<sub>_Noah_</sub><br>
+**Surah Nuh** (71: 10)
 
-> Indeed, humankind was created impatient:
+> saying, ‘Seek your Lord’s forgiveness, ˹for˺ He is truly Most Forgiving.
 
-— Jumada al-Ula 11, 1446H
+— Jumada al-Ula 12, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
