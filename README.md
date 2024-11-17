@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Morning Hours_</sub><br>
-**Surah Ad-Duhaa** (93: 4)
+<sub>_The Jinn_</sub><br>
+**Surah Al-Jinn** (72: 10)
 
-> And the next life is certainly far better for you than this one.
+> Now, we have no clue whether evil is intended for those on earth, or their Lord intends for them what is right.
 
-— Jumada al-Ula 14, 1446H
+— Jumada al-Ula 15, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
