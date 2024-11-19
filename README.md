@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Jinn_</sub><br>
-**Surah Al-Jinn** (72: 14)
+<sub>_The Enshrouded One_</sub><br>
+**Surah Al-Muzzammil** (73: 20)
 
-> And among us are those who have submitted ˹to Allah˺ and those who are deviant. So ˹as for˺ those who submitted, it is they who have attained Right Guidance.
+> Surely your Lord knows that you ˹O Prophet˺ stand ˹in prayer˺ for nearly two-thirds of the night, or ˹sometimes˺ half of it, or a third, as do some of those with you. Allah ˹alone˺ keeps a ˹precise˺ measure of the day and night. He knows that you ˹believers˺ are unable to endure this, and has turned to you in mercy. So recite ˹in prayer˺ whatever you can from the Quran. He knows that some of you will be sick, some will be travelling throughout the land seeking Allah’s bounty, and some fighting in the cause of Allah. So recite whatever you can from it. And ˹continue to˺ perform ˹regular˺ prayers, pay alms-tax, and lend to Allah a good loan. Whatever good you send forth for yourselves, you will find it with Allah far better and more rewarding. And seek Allah’s forgiveness. Surely Allah is All-Forgiving, Most Merciful.
 
-— Jumada al-Ula 16, 1446H
+— Jumada al-Ula 17, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
