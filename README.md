@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 60)
+<sub>_The Man_</sub><br>
+**Surah Al-Insan** (76: 11)
 
-> And ˹remember˺ when Moses said to his young assistant, “I will never give up until I reach the junction of the two seas, even if I travel for ages.”
+> So Allah will deliver them from the horror of that Day, and grant them radiance and joy,
 
-— Jumada al-Ula 20, 1446H
+— Jumada al-Ula 21, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
