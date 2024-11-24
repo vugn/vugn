@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Man_</sub><br>
-**Surah Al-Insan** (76: 11)
+<sub>_The Emissaries_</sub><br>
+**Surah Al-Mursalat** (77: 41)
 
-> So Allah will deliver them from the horror of that Day, and grant them radiance and joy,
+> Indeed, the righteous will be amid ˹cool˺ shade and springs
 
-— Jumada al-Ula 21, 1446H
+— Jumada al-Ula 22, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
