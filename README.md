@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Emissaries_</sub><br>
-**Surah Al-Mursalat** (77: 41)
+<sub>_Those who drag forth_</sub><br>
+**Surah An-Nazi'at** (79: 40)
 
-> Indeed, the righteous will be amid ˹cool˺ shade and springs
+> And as for those who were in awe of standing before their Lord and restrained themselves from ˹evil˺ desires,
 
-— Jumada al-Ula 22, 1446H
+— Jumada al-Ula 23, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
