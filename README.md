@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Those who drag forth_</sub><br>
-**Surah An-Nazi'at** (79: 40)
+<sub>_He Frowned_</sub><br>
+**Surah 'Abasa** (80: 37)
 
-> And as for those who were in awe of standing before their Lord and restrained themselves from ˹evil˺ desires,
+> For then everyone will have enough concern of their own.
 
-— Jumada al-Ula 23, 1446H
+— Jumada al-Ula 24, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
