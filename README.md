@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_He Frowned_</sub><br>
-**Surah 'Abasa** (80: 37)
+<sub>_The Cleaving_</sub><br>
+**Surah Al-Infitar** (82: 6)
 
-> For then everyone will have enough concern of their own.
+> O humanity! What has emboldened you against your Lord, the Most Generous,
 
-— Jumada al-Ula 24, 1446H
+— Jumada al-Ula 25, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
