@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 65)
+<sub>_The Sundering_</sub><br>
+**Surah Al-Inshiqaq** (84: 6)
 
-> There they found a servant of Ours, to whom We had granted mercy from Us and enlightened with knowledge of Our Own.
+> O humanity! Indeed, you are labouring restlessly towards your Lord, and will ˹eventually˺ meet the consequences.
 
-— Jumada al-Ula 27, 1446H
+— Jumada al-Ula 28, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
