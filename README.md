@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Nightcommer_</sub><br>
-**Surah At-Tariq** (86: 4)
+<sub>_The Overwhelming_</sub><br>
+**Surah Al-Ghashiyah** (88: 21)
 
-> There is no soul without a vigilant angel ˹recording everything˺.
+> So, ˹continue to˺ remind ˹all, O  Prophet˺, for your duty is only to remind.
 
-— Jumada al-Ula 29, 1446H
+— Jumada al-Akhirah 1, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
