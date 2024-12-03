@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Overwhelming_</sub><br>
-**Surah Al-Ghashiyah** (88: 21)
+<sub>_The Dawn_</sub><br>
+**Surah Al-Fajr** (89: 27)
 
-> So, ˹continue to˺ remind ˹all, O  Prophet˺, for your duty is only to remind.
+> ˹Allah will say to the righteous,˺ “O tranquil soul!
 
-— Jumada al-Akhirah 1, 1446H
+— Jumada al-Akhirah 2, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
