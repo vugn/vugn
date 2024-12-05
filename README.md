@@ -14,11 +14,11 @@
 
 <!-- AYAHADAY:START -->
 <sub>_The Night_</sub><br>
-**Surah Al-Layl** (92: 5)
+**Surah Al-Layl** (92: 8)
 
-> As for the one who is charitable, mindful ˹of Allah˺,
+> And as for the one who is stingy, indifferent ˹to Allah˺,
 
-— Jumada al-Akhirah 3, 1446H
+— Jumada al-Akhirah 4, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
