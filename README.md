@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Night_</sub><br>
-**Surah Al-Layl** (92: 8)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 82)
 
-> And as for the one who is stingy, indifferent ˹to Allah˺,
+> “And as for the wall, it belonged to two orphan boys in the city, and under the wall was a treasure that belonged to them, and their father had been a righteous man. So your Lord willed that these children should come of age and retrieve their treasure, as a mercy from your Lord. I did not do it ˹all˺ on my own. This is the explanation of what you could not bear patiently.” 
 
-— Jumada al-Akhirah 4, 1446H
+— Jumada al-Akhirah 5, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
