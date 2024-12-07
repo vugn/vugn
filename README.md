@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 82)
+<sub>_The Fig_</sub><br>
+**Surah At-Tin** (95: 4)
 
-> “And as for the wall, it belonged to two orphan boys in the city, and under the wall was a treasure that belonged to them, and their father had been a righteous man. So your Lord willed that these children should come of age and retrieve their treasure, as a mercy from your Lord. I did not do it ˹all˺ on my own. This is the explanation of what you could not bear patiently.” 
+> Indeed, We created humans in the best form.
 
-— Jumada al-Akhirah 5, 1446H
+— Jumada al-Akhirah 6, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
