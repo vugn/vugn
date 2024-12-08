@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Fig_</sub><br>
-**Surah At-Tin** (95: 4)
+<sub>_The Clot_</sub><br>
+**Surah Al-'Alaq** (96: 1)
 
-> Indeed, We created humans in the best form.
+> Read, ˹O Prophet,˺ in the Name of your Lord Who created—
 
-— Jumada al-Akhirah 6, 1446H
+— Jumada al-Akhirah 7, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
