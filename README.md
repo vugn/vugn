@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Clot_</sub><br>
-**Surah Al-'Alaq** (96: 1)
+<sub>_The Clear Proof_</sub><br>
+**Surah Al-Bayyinah** (98: 5)
 
-> Read, ˹O Prophet,˺ in the Name of your Lord Who created—
+> even though they were only commanded to worship Allah ˹alone˺ with sincere devotion to Him in all uprightness, establish prayer, and pay alms-tax. That is the upright Way.
 
-— Jumada al-Akhirah 7, 1446H
+— Jumada al-Akhirah 8, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
