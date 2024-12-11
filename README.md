@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Earthquake_</sub><br>
-**Surah Az-Zalzalah** (99: 7)
+<sub>_The Courser_</sub><br>
+**Surah Al-'Adiyat** (100: 6)
 
-> So whoever does an atom’s weight of good will see it.
+> Surely humankind is ungrateful to their Lord—
 
-— Jumada al-Akhirah 9, 1446H
+— Jumada al-Akhirah 10, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
