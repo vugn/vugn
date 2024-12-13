@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Calamity_</sub><br>
-**Surah Al-Qari'ah** (101: 6)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 103)
 
-> So as for those whose scale is heavy ˹with good deeds˺,
+> Say, ˹O Prophet,˺ “Shall we inform you of who will be the biggest losers of deeds?
 
-— Jumada al-Akhirah 11, 1446H
+— Jumada al-Akhirah 12, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
