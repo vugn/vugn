@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Declining Day_</sub><br>
-**Surah Al-'Asr** (103: 2)
+<sub>_The Cow_</sub><br>
+**Surah Al-Baqarah** (2: 186)
 
-> Surely humanity is in ˹grave˺ loss,
+> When My servants ask you ˹O Prophet˺ about Me: I am truly near. I respond to one’s prayer when they call upon Me. So let them respond ˹with obedience˺ to Me and believe in Me, perhaps they will be guided ˹to the Right Way˺.
 
-— Jumada al-Akhirah 14, 1446H
+— Jumada al-Akhirah 15, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
