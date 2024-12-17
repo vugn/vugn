@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 186)
+<sub>_The Women_</sub><br>
+**Surah An-Nisa** (4: 40)
 
-> When My servants ask you ˹O Prophet˺ about Me: I am truly near. I respond to one’s prayer when they call upon Me. So let them respond ˹with obedience˺ to Me and believe in Me, perhaps they will be guided ˹to the Right Way˺.
+> Indeed, Allah never wrongs ˹anyone˺—even by an atom’s weight. And if it is a good deed, He will multiply it many times over and will give a great reward out of His grace.
 
-— Jumada al-Akhirah 15, 1446H
+— Jumada al-Akhirah 16, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
