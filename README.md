@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Rocky Tract_</sub><br>
-**Surah Al-Hijr** (15: 49)
+<sub>_The Night Journey_</sub><br>
+**Surah Al-Isra** (17: 82)
 
-> Inform My servants ˹O Prophet˺ that I am truly the All-Forgiving, Most Merciful,
+> We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.
 
-— Jumada al-Akhirah 23, 1446H
+— Jumada al-Akhirah 24, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
