@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Night Journey_</sub><br>
-**Surah Al-Isra** (17: 82)
+<sub>_Mary_</sub><br>
+**Surah Maryam** (19: 9)
 
-> We send down the Quran as a healing and mercy for the believers, but it only increases the wrongdoers in loss.
+> An angel replied, “So will it be! Your Lord says, ‘It is easy for Me, just as I created you before, when you were nothing!’”
 
-— Jumada al-Akhirah 24, 1446H
+— Jumada al-Akhirah 25, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
