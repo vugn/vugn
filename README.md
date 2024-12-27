@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Mary_</sub><br>
-**Surah Maryam** (19: 9)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 110)
 
-> An angel replied, “So will it be! Your Lord says, ‘It is easy for Me, just as I created you before, when you were nothing!’”
+> Say, ˹O Prophet,˺ “I am only a man like you, ˹but˺ it has been revealed to me that your God is only One God. So whoever hopes for the meeting with their Lord, let them do good deeds and associate none in the worship of their Lord.”
 
-— Jumada al-Akhirah 25, 1446H
+— Jumada al-Akhirah 26, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
