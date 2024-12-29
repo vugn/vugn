@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Prophets_</sub><br>
-**Surah Al-Anbya** (21: 87)
+<sub>_The Pilgrimage_</sub><br>
+**Surah Al-Haj** (22: 38)
 
-> And ˹remember˺ when the Man of the Whale stormed off ˹from his city˺ in a rage, thinking We would not restrain him. Then in the ˹veils of˺ darkness he cried out, “There is no god ˹worthy of worship˺ except You. Glory be to You! I have certainly done wrong.”
+> Indeed, Allah defends those who believe. Surely Allah does not like whoever is deceitful, ungrateful.
 
-— Jumada al-Akhirah 27, 1446H
+— Jumada al-Akhirah 28, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
