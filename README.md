@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 78)
+<sub>_The Troops_</sub><br>
+**Surah Az-Zumar** (39: 23)
 
-> ˹He is˺ the One Who created me, and He ˹alone˺ guides me.
+> ˹It is˺ Allah ˹Who˺ has sent down the best message—a Book of perfect consistency and repeated lessons—which causes the skin ˹and hearts˺ of those who fear their Lord to tremble, then their skin and hearts soften at the mention of ˹the mercy of˺ Allah. That is the guidance of Allah, through which He guides whoever He wills. But whoever Allah leaves to stray will be left with no guide.
 
-— Jumada al-Akhirah 29, 1446H
+— Jumada al-Akhirah 30, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
