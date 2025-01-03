@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Troops_</sub><br>
-**Surah Az-Zumar** (39: 53)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 24)
 
-> Say, ˹O Prophet, that Allah says,˺ “O My servants who have exceeded the limits against their souls! Do not lose hope in Allah’s mercy, for Allah certainly forgives all sins. He is indeed the All-Forgiving, Most Merciful.
+> without adding, “if Allah so wills!” But if you forget, then remember your Lord, and say, “I trust my Lord will guide me to what is more right than this.”
 
-— Rajab 2, 1446H
+— Rajab 3, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
