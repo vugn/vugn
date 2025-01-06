@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 198)
+<sub>_The Night_</sub><br>
+**Surah Al-Layl** (92: 17)
 
-> There is no blame on you for seeking the bounty of your Lord ˹during this journey˺. When you return from ’Arafât, praise Allah near the sacred place and praise Him for having guided you, for surely before this ˹guidance˺ you were astray.
+> But the righteous will be spared from it—
 
-— Rajab 5, 1446H
+— Rajab 6, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
