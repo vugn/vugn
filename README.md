@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Defrauding_</sub><br>
-**Surah Al-Mutaffifin** (83: 18)
+<sub>_The Reality_</sub><br>
+**Surah Al-Haqqah** (69: 1)
 
-> But no! The virtuous are certainly bound for ’Illiyûn ˹in elevated Gardens˺—
+> The Inevitable Hour!
 
-— Rajab 29, 1446H
+— Rajab 30, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
