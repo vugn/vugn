@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Reality_</sub><br>
-**Surah Al-Haqqah** (69: 1)
+<sub>_Those who drag forth_</sub><br>
+**Surah An-Nazi'at** (79: 34)
 
-> The Inevitable Hour!
+> But, when the Supreme Disaster comes to pass—
 
-— Rajab 30, 1446H
+— Sha'ban 1, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
