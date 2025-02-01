@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Those who drag forth_</sub><br>
-**Surah An-Nazi'at** (79: 34)
+<sub>_The Smoke_</sub><br>
+**Surah Ad-Dukhan** (44: 51)
 
-> But, when the Supreme Disaster comes to pass—
+> Indeed, the righteous will be in a secure place,
 
-— Sha'ban 1, 1446H
+— Sha'ban 2, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
