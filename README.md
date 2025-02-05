@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Originator_</sub><br>
-**Surah Fatir** (35: 20)
+<sub>_The Star_</sub><br>
+**Surah An-Najm** (53: 44)
 
-> nor are the darkness and the light,
+> And He is the One Who gives life and causes death.
 
-— Sha'ban 5, 1446H
+— Sha'ban 6, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
