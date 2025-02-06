@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Star_</sub><br>
-**Surah An-Najm** (53: 44)
+<sub>_Mary_</sub><br>
+**Surah Maryam** (19: 29)
 
-> And He is the One Who gives life and causes death.
+> So she pointed to the baby. They exclaimed, “How can we talk to someone who is an infant in the cradle?”
 
-— Sha'ban 6, 1446H
+— Sha'ban 7, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
