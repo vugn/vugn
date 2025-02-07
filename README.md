@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Mary_</sub><br>
-**Surah Maryam** (19: 29)
+<sub>_The Cow_</sub><br>
+**Surah Al-Baqarah** (2: 47)
 
-> So she pointed to the baby. They exclaimed, “How can we talk to someone who is an infant in the cradle?”
+> O Children of Israel! Remember ˹all˺ the favours I granted you and how I honoured you above the others.
 
-— Sha'ban 7, 1446H
+— Sha'ban 8, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
