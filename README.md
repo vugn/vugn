@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Believers_</sub><br>
-**Surah Al-Mu'minun** (23: 115)
+<sub>_Mary_</sub><br>
+**Surah Maryam** (19: 27)
 
-> Did you then think that We had created you without purpose, and that you would never be returned to Us?”
+> Then she returned to her people, carrying him. They said ˹in shock˺, “O Mary! You have certainly done a horrible thing!
 
-— Sha'ban 13, 1446H
+— Sha'ban 14, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
