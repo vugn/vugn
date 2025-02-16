@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 14)
+<sub>_The Prohibition_</sub><br>
+**Surah At-Tahrim** (66: 10)
 
-> and make you reside in the land after them. This is for whoever is in awe of standing before Me and fears My warning.”
+> Allah sets forth an example for the disbelievers: the wife of Noah and the wife of Lot. Each was married to one of Our righteous servants, yet betrayed them. So their husbands were of no benefit to them against Allah whatsoever. Both were told, “Enter the Fire, along with the others!”
 
-— Sha'ban 16, 1446H
+— Sha'ban 17, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
