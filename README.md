@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Prohibition_</sub><br>
-**Surah At-Tahrim** (66: 10)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 124)
 
-> Allah sets forth an example for the disbelievers: the wife of Noah and the wife of Lot. Each was married to one of Our righteous servants, yet betrayed them. So their husbands were of no benefit to them against Allah whatsoever. Both were told, “Enter the Fire, along with the others!”
+> Whenever a sign comes to them, they say, “We will never believe until we receive what Allah’s messengers received.” Allah knows best where to place His message. The wicked will soon be overwhelmed by humiliation from Allah and a severe punishment for their evil plots.
 
-— Sha'ban 17, 1446H
+— Sha'ban 18, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
