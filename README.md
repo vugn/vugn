@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Night_</sub><br>
-**Surah Al-Layl** (92: 17)
+<sub>_Mary_</sub><br>
+**Surah Maryam** (19: 4)
 
-> But the righteous will be spared from it—
+> saying, “My Lord! Surely my bones have become brittle, and grey hair has spread across my head, but I have never been disappointed in my prayer to You, my Lord!
 
-— Sha'ban 20, 1446H
+— Sha'ban 21, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
