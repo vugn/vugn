@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Bee_</sub><br>
-**Surah An-Nahl** (16: 106)
+<sub>_The Rocky Tract_</sub><br>
+**Surah Al-Hijr** (15: 27)
 
-> Whoever disbelieves in Allah after their belief—not those who are forced while their hearts are firm in faith, but those who embrace disbelief wholeheartedly—they will be condemned by Allah and suffer a tremendous punishment.
+> As for the jinn, We created them earlier from smokeless fire.
 
-— Sha'ban 22, 1446H
+— Sha'ban 23, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
