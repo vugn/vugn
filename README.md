@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Forgiver_</sub><br>
-**Surah Ghafir** (40: 7)
+<sub>_The Beneficent_</sub><br>
+**Surah Ar-Rahman** (55: 31)
 
-> Those ˹angels˺ who carry the Throne and those around it glorify the praises of their Lord, have faith in Him, and seek forgiveness for the believers, ˹praying:˺ “Our Lord! You encompass everything in ˹Your˺ mercy and knowledge. So forgive those who repent and follow Your Way, and protect them from the torment of the Hellfire.
+> We will soon attend to you ˹for judgment˺, O  two multitudes ˹of jinn and humans˺!
 
-— Ramadan 9, 1446H
+— Ramadan 10, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
