@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Beneficent_</sub><br>
-**Surah Ar-Rahman** (55: 31)
+<sub>_The Cow_</sub><br>
+**Surah Al-Baqarah** (2: 211)
 
-> We will soon attend to you ˹for judgment˺, O  two multitudes ˹of jinn and humans˺!
+> Ask the Children of Israel how many clear signs We have given them. And whoever trades Allah’s favour—after receiving it—˹for disbelief˺ should know that Allah is indeed severe in punishment.
 
-— Ramadan 10, 1446H
+— Ramadan 11, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
