@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Repentance_</sub><br>
-**Surah At-Tawbah** (9: 73)
+<sub>_Those who drag forth_</sub><br>
+**Surah An-Nazi'at** (79: 8)
 
-> O Prophet! Struggle against the disbelievers and the hypocrites, and be firm with them. Hell will be their home. What an evil destination!
+> ˹The deniers’˺ hearts on that Day will be trembling ˹in horror˺,
 
-— Ramadan 25, 1446H
+— Ramadan 26, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
