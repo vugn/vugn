@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Beneficent_</sub><br>
-**Surah Ar-Rahman** (55: 45)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 27)
 
-> Then which of your Lord’s favours will you both deny? 
+> Recite what has been revealed to you from the Book of your Lord. None can change His Words, nor can you find any refuge besides Him.
 
-— Shawwal 10, 1446H
+— Shawwal 11, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
