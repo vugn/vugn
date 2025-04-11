@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Family of Imran_</sub><br>
-**Surah Ali 'Imran** (3: 63)
+<sub>_The Overwhelming_</sub><br>
+**Surah Al-Ghashiyah** (88: 11)
 
-> If they turn away, then surely Allah has ˹perfect˺ knowledge of the corruptors.
+> where no idle talk will be heard.
 
-— Shawwal 12, 1446H
+— Shawwal 13, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
