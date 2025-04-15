@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Heights_</sub><br>
-**Surah Al-A'raf** (7: 69)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 169)
 
-> Do you find it astonishing that a reminder should come to you from your Lord through one of your own so he may warn you? Remember that He made you successors after the people of Noah and increased you greatly in stature. So remember Allah’s favours, so you may be successful.”
+> My Lord! Save me and my family from ˹the consequences of˺ what they do.”
 
-— Shawwal 16, 1446H
+— Shawwal 17, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
