@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Wind-Curved Sandhills_</sub><br>
-**Surah Al-Ahqaf** (46: 13)
+<sub>_Ta-Ha_</sub><br>
+**Surah Taha** (20: 54)
 
-> Surely those who say, “Our Lord is Allah,” and then remain steadfast—there will be no fear for them, nor will they grieve.
+> ˹so˺ eat and graze your cattle. Surely in this are signs for people of sound judgment.
 
-— Shawwal 19, 1446H
+— Shawwal 20, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
