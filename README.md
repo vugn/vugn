@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ta-Ha_</sub><br>
-**Surah Taha** (20: 54)
+<sub>_The Exile_</sub><br>
+**Surah Al-Hashr** (59: 24)
 
-> ˹so˺ eat and graze your cattle. Surely in this are signs for people of sound judgment.
+> He is Allah: the Creator, the Inventor, the Shaper. He ˹alone˺ has the Most Beautiful Names. Whatever is in the heavens and the earth ˹constantly˺ glorifies Him. And He is the Almighty, All-Wise.
 
-— Shawwal 20, 1446H
+— Shawwal 21, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
