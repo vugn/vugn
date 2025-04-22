@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 31)
+<sub>_The Winnowing Winds_</sub><br>
+**Surah Adh-Dhariyat** (51: 55)
 
-> Pharaoh demanded, “Bring it then, if what you say is true.”
+> But ˹continue to˺ remind. For certainly reminders benefit the believers.
 
-— Shawwal 23, 1446H
+— Shawwal 24, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
