@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Ascending Stairways_</sub><br>
-**Surah Al-Ma'arij** (70: 43)
+<sub>_The Rocky Tract_</sub><br>
+**Surah Al-Hijr** (15: 65)
 
-> the Day they will come forth from the graves swiftly, as if racing to an idol ˹for a blessing˺,
+> So travel with your family in the dark of night, and follow ˹closely˺ behind them. Do not let any of you look back, and go where you are commanded.”
 
-— Shawwal 29, 1446H
+— Shawwal 30, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
