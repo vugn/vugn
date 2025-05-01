@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Women_</sub><br>
-**Surah An-Nisa** (4: 161)
+<sub>_The Bee_</sub><br>
+**Surah An-Nahl** (16: 7)
 
-> taking interest despite its prohibition, and consuming people’s wealth unjustly. We have prepared for the disbelievers among them a painful punishment.
+> And they carry your loads to ˹distant˺ lands which you could not otherwise reach without great hardship. Surely your Lord is Ever Gracious, Most Merciful.
 
-— Dhu al-Qa'dah 2, 1446H
+— Dhu al-Qa'dah 3, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
