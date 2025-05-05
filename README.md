@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Mary_</sub><br>
-**Surah Maryam** (19: 28)
+<sub>_Ya Sin_</sub><br>
+**Surah Ya-Sin** (36: 10)
 
-> O  sister of Aaron! Your father was not an indecent man, nor was your mother unchaste.”
+> It is the same whether you warn them or not—they will never believe.
 
-— Dhu al-Qa'dah 6, 1446H
+— Dhu al-Qa'dah 7, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
