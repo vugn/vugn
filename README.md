@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Overwhelming_</sub><br>
-**Surah Al-Ghashiyah** (88: 7)
+<sub>_The Bee_</sub><br>
+**Surah An-Nahl** (16: 105)
 
-> neither nourishing nor satisfying hunger.
+> No one fabricates lies except those who disbelieve in Allah’s revelations, and it is they who are the ˹true˺ liars.
 
-— Dhu al-Qa'dah 24, 1446H
+— Dhu al-Qa'dah 25, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
