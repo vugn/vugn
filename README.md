@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ya Sin_</sub><br>
-**Surah Ya-Sin** (36: 82)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 177)
 
-> All it takes, when He wills something ˹to be˺, is simply to say to it: “Be!” And it is!
+> when Shu’aib said to them, “Will you not fear ˹Allah˺?
 
-— Dhu al-Qa'dah 27, 1446H
+— Dhu al-Qa'dah 28, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
