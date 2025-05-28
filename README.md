@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 72)
+<sub>_The Sovereignty_</sub><br>
+**Surah Al-Mulk** (67: 2)
 
-> He replied, “Did I not say that you cannot have patience with me?”
+> ˹He is the One˺ Who created death and life in order to test which of you is best in deeds. And He is the Almighty, All-Forgiving.
 
-— Dhu al-Qa'dah 29, 1446H
+— Dhu al-Hijjah 1, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
