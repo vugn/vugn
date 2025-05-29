@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Sovereignty_</sub><br>
-**Surah Al-Mulk** (67: 2)
+<sub>_The Emissaries_</sub><br>
+**Surah Al-Mursalat** (77: 16)
 
-> ˹He is the One˺ Who created death and life in order to test which of you is best in deeds. And He is the Almighty, All-Forgiving.
+> Did We not destroy earlier disbelievers?
 
-— Dhu al-Hijjah 1, 1446H
+— Dhu al-Hijjah 2, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
