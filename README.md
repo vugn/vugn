@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Emissaries_</sub><br>
-**Surah Al-Mursalat** (77: 16)
+<sub>_Muhammad_</sub><br>
+**Surah Muhammad** (47: 18)
 
-> Did We not destroy earlier disbelievers?
+> Are they only waiting for the Hour to take them by surprise? Yet ˹some of˺ its signs have already come. Once it actually befalls them, will it not be too late to be mindful?
 
-— Dhu al-Hijjah 2, 1446H
+— Dhu al-Hijjah 3, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
