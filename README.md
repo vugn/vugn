@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Family of Imran_</sub><br>
-**Surah Ali 'Imran** (3: 166)
+<sub>_The Rocky Tract_</sub><br>
+**Surah Al-Hijr** (15: 75)
 
-> So what you suffered on the day the two armies met was by Allah’s Will, so that He might distinguish the ˹true˺ believers
+> Surely in this are signs for those who contemplate.
 
-— Dhu al-Hijjah 7, 1446H
+— Dhu al-Hijjah 8, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
