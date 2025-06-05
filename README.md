@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Rocky Tract_</sub><br>
-**Surah Al-Hijr** (15: 75)
+<sub>_The Cow_</sub><br>
+**Surah Al-Baqarah** (2: 256)
 
-> Surely in this are signs for those who contemplate.
+> Let there be no compulsion in religion, for the truth stands out clearly from falsehood. So whoever renounces false gods and believes in Allah has certainly grasped the firmest, unfailing hand-hold. And Allah is All-Hearing, All-Knowing.
 
-— Dhu al-Hijjah 8, 1446H
+— Dhu al-Hijjah 9, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
