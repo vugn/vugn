@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Letter "Qaf"_</sub><br>
-**Surah Qaf** (50: 17)
+<sub>_The Defrauding_</sub><br>
+**Surah Al-Mutaffifin** (83: 34)
 
-> As the two recording-angels—˹one˺ sitting to the right, and ˹the other to˺ the left—note ˹everything˺,
+> But on that Day the believers will be laughing at the disbelievers,
 
-— Dhu al-Hijjah 15, 1446H
+— Dhu al-Hijjah 16, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
