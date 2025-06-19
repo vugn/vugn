@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Sovereignty_</sub><br>
-**Surah Al-Mulk** (67: 26)
+<sub>_Ya Sin_</sub><br>
+**Surah Ya-Sin** (36: 54)
 
-> Say, ˹O Prophet,˺ “That knowledge is with Allah alone, and I am only sent with a clear warning.”
+> On that Day no soul will be wronged in the least, nor will you be rewarded except for what you used to do.
 
-— Dhu al-Hijjah 22, 1446H
+— Dhu al-Hijjah 23, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
