@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Ya Sin_</sub><br>
-**Surah Ya-Sin** (36: 54)
+<sub>_The Spoils of War_</sub><br>
+**Surah Al-Anfal** (8: 11)
 
-> On that Day no soul will be wronged in the least, nor will you be rewarded except for what you used to do.
+> ˹Remember˺ when He caused drowsiness to overcome you, giving you serenity. And He sent down rain from the sky to purify you, free you from Satan’s whispers, strengthen your hearts, and make ˹your˺ steps firm.
 
-— Dhu al-Hijjah 23, 1446H
+— Dhu al-Hijjah 24, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
