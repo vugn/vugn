@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 30)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 190)
 
-> As for those who believe and do good, We certainly never deny the reward of those who are best in deeds.
+> But when He granted their descendants good offspring, they associated false gods in what He has given them. Exalted is Allah above what they associate ˹with Him˺!
 
-— Dhu al-Hijjah 25, 1446H
+— Dhu al-Hijjah 26, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
