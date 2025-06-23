@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Heights_</sub><br>
-**Surah Al-A'raf** (7: 190)
+<sub>_The Bee_</sub><br>
+**Surah An-Nahl** (16: 120)
 
-> But when He granted their descendants good offspring, they associated false gods in what He has given them. Exalted is Allah above what they associate ˹with Him˺!
+> Indeed, Abraham was a model of excellence: devoted to Allah, ˹perfectly˺ upright—not a polytheist—
 
-— Dhu al-Hijjah 26, 1446H
+— Dhu al-Hijjah 27, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
