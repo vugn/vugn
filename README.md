@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Bee_</sub><br>
-**Surah An-Nahl** (16: 120)
+<sub>_The Fig_</sub><br>
+**Surah At-Tin** (95: 5)
 
-> Indeed, Abraham was a model of excellence: devoted to Allah, ˹perfectly˺ upright—not a polytheist—
+> But We will reduce them to the lowest of the low ˹in Hell˺,
 
-— Dhu al-Hijjah 27, 1446H
+— Dhu al-Hijjah 28, 1446H
 <!-- AYAHADAY:END -->
 
 <br>
