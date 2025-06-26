@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Victory_</sub><br>
-**Surah Al-Fath** (48: 16)
+<sub>_The Smoke_</sub><br>
+**Surah Ad-Dukhan** (44: 2)
 
-> Say to nomadic Arabs, who stayed behind, “You will be called ˹to fight˺ against a people of great might, who you will fight unless they submit. If you then obey, Allah will grant you a fine reward. But if you turn away as you did before, He will inflict upon you a painful punishment.”
+> By the clear Book!
 
-— Dhu al-Hijjah 29, 1446H
+— Muharram 1, 1447H
 <!-- AYAHADAY:END -->
 
 <br>
