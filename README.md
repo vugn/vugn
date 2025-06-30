@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Star_</sub><br>
-**Surah An-Najm** (53: 5)
+<sub>_The Prostration_</sub><br>
+**Surah As-Sajdah** (32: 7)
 
-> He has been taught by one ˹angel˺ of mighty power
+> Who has perfected everything He created. And He originated the creation of humankind from clay.
 
-— Muharram 4, 1447H
+— Muharram 5, 1447H
 <!-- AYAHADAY:END -->
 
 <br>
