@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Stories_</sub><br>
-**Surah Al-Qasas** (28: 20)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 34)
 
-> And there came a man, rushing from the farthest end of the city. He said, “O Moses! The chiefs are actually conspiring against you to put you to death, so leave ˹the city˺. I really advise you ˹to do so˺.”
+> Pharaoh said to the chiefs around him, “He is indeed a skilled magician,
 
-— Muharram 7, 1447H
+— Muharram 8, 1447H
 <!-- AYAHADAY:END -->
 
 <br>
