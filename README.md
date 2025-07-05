@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 47)
+<sub>_The Heights_</sub><br>
+**Surah Al-A'raf** (7: 180)
 
-> So do not think ˹O Prophet˺ that Allah will fail to keep His promise to His messengers. Allah is indeed Almighty, capable of punishment.
+> Allah has the Most Beautiful Names. So call upon Him by them, and keep away from those who abuse His Names. They will be punished for what they used to do.
 
-— Muharram 9, 1447H
+— Muharram 10, 1447H
 <!-- AYAHADAY:END -->
 
 <br>
