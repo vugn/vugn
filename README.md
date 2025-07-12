@@ -13,12 +13,12 @@
 ## <h3 align="left">:star_and_crescent: Ayah of the Day</h3>
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 110)
+<sub>_The Repentance_</sub><br>
+**Surah At-Tawbah** (9: 18)
 
-> We turn their hearts and eyes away ˹from the truth˺ as they refused to believe at first, leaving them to wander blindly in their defiance.
+> The mosques of Allah should only be maintained by those who believe in Allah and the Last Day, establish prayer, pay alms-tax, and fear none but Allah. It is right to hope that they will be among the ˹truly˺ guided.
 
-— Muharram 16, 1447H
+— Muharram 17, 1447H
 <!-- AYAHADAY:END -->
 
 <br>
