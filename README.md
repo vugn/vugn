@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Women_</sub><br>
-**Surah An-Nisa** (4: 28)
+<sub>_The Poets_</sub><br>
+**Surah Ash-Shu'ara** (26: 221)
 
-> And it is Allah’s Will to lighten your burdens, for humankind was created weak.
+> Shall I inform you of whom the devils ˹actually˺ descend upon?
 
-— Muharram 23, 1447H
+— Muharram 24, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
