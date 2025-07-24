@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Ornaments of Gold_</sub><br>
-**Surah Az-Zukhruf** (43: 10)
+<sub>_The Night Journey_</sub><br>
+**Surah Al-Isra** (17: 31)
 
-> ˹He is the One˺ Who has laid out the earth for you, and set in it pathways for you so that you may find your way.
+> Do not kill your children for fear of poverty. We provide for them and for you. Surely killing them is a heinous sin.
 
-— Muharram 28, 1447H
+— Muharram 29, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
