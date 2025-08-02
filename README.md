@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Courser_</sub><br>
-**Surah Al-'Adiyat** (100: 6)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 46)
 
-> Surely humankind is ungrateful to their Lord—
+> Wealth and children are the adornment of this worldly life, but the everlasting good deeds are far better with your Lord in reward and in hope. 
 
-— Safar 7, 1447H
+— Safar 8, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
