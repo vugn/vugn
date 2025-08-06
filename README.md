@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 125)
+<sub>_Ta-Ha_</sub><br>
+**Surah Taha** (20: 57)
 
-> Whoever Allah wills to guide, He opens their heart to Islam. But whoever He wills to leave astray, He makes their chest tight and constricted as if they were climbing up into the sky. This is how Allah dooms those who disbelieve.
+> He said, “Have you come to drive us out of our land with your magic, O  Moses?
 
-— Safar 11, 1447H
+— Safar 12, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
