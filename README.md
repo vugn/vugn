@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Heights_</sub><br>
-**Surah Al-A'raf** (7: 190)
+<sub>_The City_</sub><br>
+**Surah Al-Balad** (90: 11)
 
-> But when He granted their descendants good offspring, they associated false gods in what He has given them. Exalted is Allah above what they associate ˹with Him˺!
+> If only they had attempted the challenging path ˹of goodness instead˺!
 
-— Safar 27, 1447H
+— Safar 28, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
