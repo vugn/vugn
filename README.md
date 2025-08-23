@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The City_</sub><br>
-**Surah Al-Balad** (90: 11)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 51)
 
-> If only they had attempted the challenging path ˹of goodness instead˺!
+> Warn with this ˹Quran˺ those who are awed by the prospect of being gathered before their Lord—when they will have no protector or intercessor besides Him—so perhaps they will be mindful ˹of Him˺.
 
-— Safar 28, 1447H
+— Safar 29, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
