@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Cloaked One_</sub><br>
-**Surah Al-Muddaththir** (74: 49)
+<sub>_The Night_</sub><br>
+**Surah Al-Layl** (92: 10)
 
-> Now, what is the matter with them that they are turning away from the reminder,
+> We will facilitate for them the path of hardship.
 
-— Rabi' al-Awwal 1, 1447H
+— Rabi' al-Awwal 2, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
