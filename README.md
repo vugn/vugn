@@ -18,11 +18,11 @@
 
 <!-- AYAHADAY:START -->
 <sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 254)
+**Surah Al-Baqarah** (2: 238)
 
-> O believers! Donate from what We have provided for you before the arrival of a Day when there will be no bargaining, friendship, or intercession. Those who disbelieve are ˹truly˺ the wrongdoers.
+> Observe the ˹five obligatory˺ prayers—especially the middle prayer—and stand in true devotion to Allah.
 
-— Rabi' al-Awwal 7, 1447H
+— Rabi' al-Awwal 8, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
