@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Table Spread_</sub><br>
-**Surah Al-Ma'idah** (5: 99)
+<sub>_Abrahim_</sub><br>
+**Surah Ibrahim** (14: 42)
 
-> The Messenger’s duty is only to deliver ˹the message˺. And Allah ˹fully˺ knows what you reveal and what you conceal.
+> Do not think ˹O Prophet˺ that Allah is unaware of what the wrongdoers do. He only delays them until a Day when ˹their˺ eyes will stare in horror—
 
-— Rabi' al-Awwal 9, 1447H
+— Rabi' al-Awwal 10, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
