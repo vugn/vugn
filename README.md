@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_Those who drag forth_</sub><br>
-**Surah An-Nazi'at** (79: 34)
+<sub>_The Smoke_</sub><br>
+**Surah Ad-Dukhan** (44: 51)
 
-> But, when the Supreme Disaster comes to pass—
+> Indeed, the righteous will be in a secure place,
 
-— Rabi' al-Awwal 19, 1447H
+— Rabi' al-Awwal 20, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
