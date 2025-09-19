@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 47)
+<sub>_The Palm Fiber_</sub><br>
+**Surah Al-Masad** (111: 1)
 
-> O Children of Israel! Remember ˹all˺ the favours I granted you and how I honoured you above the others.
+> May the hands of Abu Lahab perish, and he ˹himself˺ perish!
 
-— Rabi' al-Awwal 26, 1447H
+— Rabi' al-Awwal 27, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
