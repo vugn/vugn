@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Believers_</sub><br>
-**Surah Al-Mu'minun** (23: 115)
+<sub>_Mary_</sub><br>
+**Surah Maryam** (19: 27)
 
-> Did you then think that We had created you without purpose, and that you would never be returned to Us?”
+> Then she returned to her people, carrying him. They said ˹in shock˺, “O Mary! You have certainly done a horrible thing!
 
-— Rabi' al-Thani 1, 1447H
+— Rabi' al-Thani 2, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
