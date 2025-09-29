@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Cattle_</sub><br>
-**Surah Al-An'am** (6: 49)
+<sub>_The Table Spread_</sub><br>
+**Surah Al-Ma'idah** (5: 91)
 
-> But those who deny Our signs will be afflicted with punishment for their rebelliousness.
+> Satan’s plan is to stir up hostility and hatred between you with intoxicants and gambling and to prevent you from remembering Allah and praying. Will you not then abstain?
 
-— Rabi' al-Thani 6, 1447H
+— Rabi' al-Thani 7, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
