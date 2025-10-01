@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 181)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 4)
 
-> Give full measure, and cause no loss ˹to others˺.
+> Whenever a sign comes to them from their Lord, they turn away from it.
 
-— Rabi' al-Thani 8, 1447H
+— Rabi' al-Thani 9, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
