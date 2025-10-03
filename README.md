@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 9)
+<sub>_The Light_</sub><br>
+**Surah An-Nur** (24: 27)
 
-> And your Lord is certainly the Almighty, Most Merciful.
+> O believers! Do not enter any house other than your own until you have asked for permission and greeted its occupants. This is best for you, so perhaps you will be mindful.
 
-— Rabi' al-Thani 10, 1447H
+— Rabi' al-Thani 11, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
