@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 27)
+<sub>_Family of Imran_</sub><br>
+**Surah Ali 'Imran** (3: 63)
 
-> Recite what has been revealed to you from the Book of your Lord. None can change His Words, nor can you find any refuge besides Him.
+> If they turn away, then surely Allah has ˹perfect˺ knowledge of the corruptors.
 
-— Rabi' al-Thani 13, 1447H
+— Rabi' al-Thani 14, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
