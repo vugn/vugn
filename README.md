@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Overwhelming_</sub><br>
-**Surah Al-Ghashiyah** (88: 11)
+<sub>_Ya Sin_</sub><br>
+**Surah Ya-Sin** (36: 59)
 
-> where no idle talk will be heard.
+> ˹Then the disbelievers will be told,˺ “Step away ˹from the believers˺ this Day, O  wicked ones!
 
-— Rabi' al-Thani 15, 1447H
+— Rabi' al-Thani 16, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
