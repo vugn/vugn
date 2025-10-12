@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 169)
+<sub>_The Women_</sub><br>
+**Surah An-Nisa** (4: 153)
 
-> My Lord! Save me and my family from ˹the consequences of˺ what they do.”
+> The People of the Book demand that you ˹O Prophet˺ bring down for them a revelation in writing from heaven. They demanded what is even greater than this from Moses, saying, “Make Allah visible to us!” So a thunderbolt struck them for their wrongdoing. Then they took the calf for worship after receiving clear signs. Still We forgave them for that ˹after their repentance˺ and gave Moses compelling proof.
 
-— Rabi' al-Thani 19, 1447H
+— Rabi' al-Thani 20, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
