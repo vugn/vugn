@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Women_</sub><br>
-**Surah An-Nisa** (4: 153)
+<sub>_The Wind-Curved Sandhills_</sub><br>
+**Surah Al-Ahqaf** (46: 13)
 
-> The People of the Book demand that you ˹O Prophet˺ bring down for them a revelation in writing from heaven. They demanded what is even greater than this from Moses, saying, “Make Allah visible to us!” So a thunderbolt struck them for their wrongdoing. Then they took the calf for worship after receiving clear signs. Still We forgave them for that ˹after their repentance˺ and gave Moses compelling proof.
+> Surely those who say, “Our Lord is Allah,” and then remain steadfast—there will be no fear for them, nor will they grieve.
 
-— Rabi' al-Thani 20, 1447H
+— Rabi' al-Thani 21, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
