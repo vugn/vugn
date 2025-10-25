@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Rocky Tract_</sub><br>
-**Surah Al-Hijr** (15: 65)
+<sub>_Ta-Ha_</sub><br>
+**Surah Taha** (20: 23)
 
-> So travel with your family in the dark of night, and follow ˹closely˺ behind them. Do not let any of you look back, and go where you are commanded.”
+> so that We may show you some of Our greatest signs.
 
-— Jumada al-Ula 2, 1447H
+— Jumada al-Ula 3, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
