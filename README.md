@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Cow_</sub><br>
-**Surah Al-Baqarah** (2: 256)
+<sub>_The Prophets_</sub><br>
+**Surah Al-Anbya** (21: 102)
 
-> Let there be no compulsion in religion, for the truth stands out clearly from falsehood. So whoever renounces false gods and believes in Allah has certainly grasped the firmest, unfailing hand-hold. And Allah is All-Hearing, All-Knowing.
+> not even hearing the slightest hissing from it. And they will delight forever in what their souls desire.
 
-— Jumada al-Akhirah 10, 1447H
+— Jumada al-Akhirah 11, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
