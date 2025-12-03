@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Prophets_</sub><br>
-**Surah Al-Anbya** (21: 102)
+<sub>_The Stories_</sub><br>
+**Surah Al-Qasas** (28: 35)
 
-> not even hearing the slightest hissing from it. And they will delight forever in what their souls desire.
+> Allah responded, “We will assist you with your brother and grant you both authority, so they cannot harm you. With Our signs, you and those who follow you will ˹certainly˺ prevail.”
 
-— Jumada al-Akhirah 11, 1447H
+— Jumada al-Akhirah 12, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
