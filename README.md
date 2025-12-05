@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 54)
+<sub>_The Women_</sub><br>
+**Surah An-Nisa** (4: 50)
 
-> We have surely set forth in this Quran every ˹kind of˺ lesson for people, but humankind is the most argumentative of all beings.
+> See how they fabricate lies against Allah—this alone is a blatant sin.
 
-— Jumada al-Akhirah 13, 1447H
+— Jumada al-Akhirah 14, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
