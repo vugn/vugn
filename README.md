@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Women_</sub><br>
-**Surah An-Nisa** (4: 50)
+<sub>_The Thunder_</sub><br>
+**Surah Ar-Ra'd** (13: 22)
 
-> See how they fabricate lies against Allah—this alone is a blatant sin.
+> And ˹they are˺ those who endure patiently, seeking their Lord’s pleasure, establish prayer, donate from what We have provided for them—secretly and openly—and respond to evil with good. It is they who will have the ultimate abode:
 
-— Jumada al-Akhirah 14, 1447H
+— Jumada al-Akhirah 15, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
