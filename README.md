@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Letter "Qaf"_</sub><br>
-**Surah Qaf** (50: 17)
+<sub>_The Defrauding_</sub><br>
+**Surah Al-Mutaffifin** (83: 34)
 
-> As the two recording-angels—˹one˺ sitting to the right, and ˹the other to˺ the left—note ˹everything˺,
+> But on that Day the believers will be laughing at the disbelievers,
 
-— Jumada al-Akhirah 16, 1447H
+— Jumada al-Akhirah 17, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
