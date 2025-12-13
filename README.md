@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Troops_</sub><br>
-**Surah Az-Zumar** (39: 32)
+<sub>_The Ant_</sub><br>
+**Surah An-Naml** (27: 83)
 
-> Who then does more wrong than those who lie about Allah and reject the truth after it has reached them? Is Hell not a ˹fitting˺ home for the disbelievers?
+> ˹Watch for˺ the Day We will gather from every faith-community a group of those who denied Our revelations, and they will be driven in ranks.
 
-— Jumada al-Akhirah 21, 1447H
+— Jumada al-Akhirah 22, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
