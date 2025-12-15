@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Sovereignty_</sub><br>
-**Surah Al-Mulk** (67: 26)
+<sub>_Ya Sin_</sub><br>
+**Surah Ya-Sin** (36: 54)
 
-> Say, ˹O Prophet,˺ “That knowledge is with Allah alone, and I am only sent with a clear warning.”
+> On that Day no soul will be wronged in the least, nor will you be rewarded except for what you used to do.
 
-— Jumada al-Akhirah 23, 1447H
+— Jumada al-Akhirah 24, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
