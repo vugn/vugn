@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Fig_</sub><br>
-**Surah At-Tin** (95: 5)
+<sub>_The Victory_</sub><br>
+**Surah Al-Fath** (48: 16)
 
-> But We will reduce them to the lowest of the low ˹in Hell˺,
+> Say to nomadic Arabs, who stayed behind, “You will be called ˹to fight˺ against a people of great might, who you will fight unless they submit. If you then obey, Allah will grant you a fine reward. But if you turn away as you did before, He will inflict upon you a painful punishment.”
 
-— Jumada al-Akhirah 29, 1447H
+— Rajab 1, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
