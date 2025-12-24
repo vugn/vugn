@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Cave_</sub><br>
-**Surah Al-Kahf** (18: 13)
+<sub>_The Clot_</sub><br>
+**Surah Al-'Alaq** (96: 14)
 
-> We relate to you ˹O Prophet˺ their story in truth. They were youths who truly believed in their Lord, and We increased them in guidance.
+> Does he not know that Allah sees ˹all˺?
 
-— Rajab 3, 1447H
+— Rajab 4, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
