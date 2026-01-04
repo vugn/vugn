@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Table Spread_</sub><br>
-**Surah Al-Ma'idah** (5: 76)
+<sub>_The Elephant_</sub><br>
+**Surah Al-Fil** (105: 4)
 
-> Say, ˹O Prophet,˺ “How can you worship besides Allah those who can neither harm nor benefit you? And Allah ˹alone˺ is the All-Hearing, All-Knowing.”
+> that pelted them with stones of baked clay,
 
-— Rajab 14, 1447H
+— Rajab 15, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
