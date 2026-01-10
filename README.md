@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Repentance_</sub><br>
-**Surah At-Tawbah** (9: 76)
+<sub>_The Resurrection_</sub><br>
+**Surah Al-Qiyamah** (75: 24)
 
-> But when He gave them out of His bounty, they withheld it and turned away indifferently.
+> And ˹other˺ faces will be gloomy,
 
-— Rajab 20, 1447H
+— Rajab 21, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
