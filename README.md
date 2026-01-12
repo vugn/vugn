@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Romans_</sub><br>
-**Surah Ar-Rum** (30: 50)
+<sub>_The Moon_</sub><br>
+**Surah Al-Qamar** (54: 40)
 
-> See then the impact of Allah’s mercy: how He gives life to the earth after its death! Surely That ˹same God˺ can raise the dead. For He is Most Capable of everything.
+> And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?
 
-— Rajab 22, 1447H
+— Rajab 23, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
