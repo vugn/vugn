@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Moon_</sub><br>
-**Surah Al-Qamar** (54: 40)
+<sub>_The Women_</sub><br>
+**Surah An-Nisa** (4: 28)
 
-> And We have certainly made the Quran easy to remember. So is there anyone who will be mindful?
+> And it is Allah’s Will to lighten your burdens, for humankind was created weak.
 
-— Rajab 23, 1447H
+— Rajab 24, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
