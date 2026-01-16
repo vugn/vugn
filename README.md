@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 195)
+<sub>_The Moon_</sub><br>
+**Surah Al-Qamar** (54: 36)
 
-> in a clear Arabic tongue.
+> He had already warned them of Our ˹crushing˺ blow but they disputed the warnings.
 
-— Rajab 26, 1447H
+— Rajab 27, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
