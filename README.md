@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Believers_</sub><br>
-**Surah Al-Mu'minun** (23: 114)
+<sub>_The Cattle_</sub><br>
+**Surah Al-An'am** (6: 125)
 
-> He will say, “You only remained for a little while, if only you knew.
+> Whoever Allah wills to guide, He opens their heart to Islam. But whoever He wills to leave astray, He makes their chest tight and constricted as if they were climbing up into the sky. This is how Allah dooms those who disbelieve.
 
-— Sha'ban 11, 1447H
+— Sha'ban 12, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
