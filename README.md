@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Combined Forces_</sub><br>
-**Surah Al-Ahzab** (33: 29)
+<sub>_The Repentance_</sub><br>
+**Surah At-Tawbah** (9: 61)
 
-> But if you desire Allah and His Messenger and the ˹everlasting˺ Home of the Hereafter, then surely Allah has prepared a great reward for those of you who do good.”
+> And there are others who hurt the Prophet by saying, “He listens to anyone.” Say, ˹O Prophet,˺ “He listens to what is best for you. He believes in Allah, has faith in the believers, and is a mercy for those who believe among you.” Those who hurt Allah’s Messenger will suffer a painful punishment.
 
-— Sha'ban 14, 1447H
+— Sha'ban 15, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
