@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Night_</sub><br>
-**Surah Al-Layl** (92: 10)
+<sub>_The Smoke_</sub><br>
+**Surah Ad-Dukhan** (44: 54)
 
-> We will facilitate for them the path of hardship.
+> So it will be. And We will pair them to maidens with gorgeous eyes.
 
-— Ramadan 3, 1447H
+— Ramadan 4, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
