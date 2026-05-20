@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 177)
+<sub>_The Cave_</sub><br>
+**Surah Al-Kahf** (18: 72)
 
-> when Shu’aib said to them, “Will you not fear ˹Allah˺?
+> He replied, “Did I not say that you cannot have patience with me?”
 
-— Dhu al-Hijjah 2, 1447H
+— Dhu al-Hijjah 3, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
