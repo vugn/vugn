@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_Muhammad_</sub><br>
-**Surah Muhammad** (47: 18)
+<sub>_Abrahim_</sub><br>
+**Surah Ibrahim** (14: 50)
 
-> Are they only waiting for the Hour to take them by surprise? Yet ˹some of˺ its signs have already come. Once it actually befalls them, will it not be too late to be mindful?
+> with garments of tar, and their faces covered with flames.
 
-— Dhu al-Hijjah 6, 1447H
+— Dhu al-Hijjah 7, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
