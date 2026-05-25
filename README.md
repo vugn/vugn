@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_Abrahim_</sub><br>
-**Surah Ibrahim** (14: 50)
+<sub>_The Man_</sub><br>
+**Surah Al-Insan** (76: 18)
 
-> with garments of tar, and their faces covered with flames.
+> from a spring there, called Salsabîl.
 
-— Dhu al-Hijjah 7, 1447H
+— Dhu al-Hijjah 8, 1447H
 <!-- AYAHADAY:END -->
 
 <br/>
