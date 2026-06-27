@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 34)
+<sub>_Abrahim_</sub><br>
+**Surah Ibrahim** (14: 47)
 
-> Pharaoh said to the chiefs around him, “He is indeed a skilled magician,
+> So do not think ˹O Prophet˺ that Allah will fail to keep His promise to His messengers. Allah is indeed Almighty, capable of punishment.
 
-— Muharram 11, 1448H
+— Muharram 12, 1448H
 <!-- AYAHADAY:END -->
 
 <br/>
