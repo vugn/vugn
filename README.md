@@ -18,11 +18,11 @@
 
 <!-- AYAHADAY:START -->
 <sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 221)
+**Surah Ash-Shu'ara** (26: 195)
 
-> Shall I inform you of whom the devils ˹actually˺ descend upon?
+> in a clear Arabic tongue.
 
-— Muharram 27, 1448H
+— Muharram 28, 1448H
 <!-- AYAHADAY:END -->
 
 <br/>
