@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Poets_</sub><br>
-**Surah Ash-Shu'ara** (26: 195)
+<sub>_The Moon_</sub><br>
+**Surah Al-Qamar** (54: 36)
 
-> in a clear Arabic tongue.
+> He had already warned them of Our ˹crushing˺ blow but they disputed the warnings.
 
-— Muharram 28, 1448H
+— Muharram 29, 1448H
 <!-- AYAHADAY:END -->
 
 <br/>
