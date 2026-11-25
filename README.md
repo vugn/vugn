@@ -17,12 +17,12 @@
 ## :star_and_crescent: Ayah of the Day
 
 <!-- AYAHADAY:START -->
-<sub>_The Defrauding_</sub><br>
-**Surah Al-Mutaffifin** (83: 34)
+<sub>_The Prophets_</sub><br>
+**Surah Al-Anbya** (21: 95)
 
-> But on that Day the believers will be laughing at the disbelievers,
+> It is impossible for a society which We have destroyed to ever rise again,
 
-— Jumada al-Akhirah 14, 1448H
+— Jumada al-Akhirah 15, 1448H
 <!-- AYAHADAY:END -->
 
 <br/>
